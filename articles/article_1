@@ -1,0 +1,27 @@
+/* articles/article_1.html */
+<!DOCTYPE html>
+<html lang="fr">
+<head>
+  <meta charset="UTF-8">
+  <title>Comprendre la Roqya</title>
+  <link rel="stylesheet" href="../style.css">
+</head>
+<body>
+  <header>
+    <h1>Roqya Spirituelle</h1>
+    <nav>
+      <a href="../index.html">Accueil</a>
+    </nav>
+  </header>
+
+  <section>
+    <h2>Comprendre la Roqya : Bases et bienfaits</h2>
+    <p>La Roqya est une méthode de guérison spirituelle utilisant le Coran et les invocations. Elle vise à soigner les maux occultes et à renforcer la foi.</p>
+    <p>Cet article est un exemple. Vous pourrez y publier vos vrais contenus plus tard.</p>
+  </section>
+
+  <footer>
+    <p>&copy; 2025 Roqya Spirituelle</p>
+  </footer>
+</body>
+</html>
