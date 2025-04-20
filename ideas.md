@@ -24,14 +24,20 @@ Présentation de nos activités dans un bandeau : Action - Information - Préven
     - Hygiène de vie : musiques, applications (tiktok machin), orgueil et caractères sombres, ignorance, ...
     - Parlez-en autour de vous !
 
+5. Nous soutenir : 
+    - Sadaqas: produits de traitement, déplacements, frais de fonctionnement, sadaqas jariyah avec intentio
+    - Invocations et prières nocturnes
+    - Se former et s'engager
 
-5. Contact:
+
+6. Contact:
     - Qui sommes-nous ?
     - Formulaire de contact direct
-    - Partenaires, raqiy de confiance
+    - Partenaires, raqiys de confiance
 
 ## Idées d'articles:
 
+- Recueil de textes (coran, sunnah, athar)
 - L'agent magique : le djinn
     - Les différents types de djinn
     - Leurs attaques et comment se défendre
@@ -44,7 +50,7 @@ Présentation de nos activités dans un bandeau : Action - Information - Préven
     - Les pactes sataniques
     - Les talismans
 - Annuler les sorcelleries
-- Recueil de textes (coran, sunnah, athar)
+- Demander à Allah de nous montrer
 - Coraniser tout ce que l'on peut
 - Eviter les charlatan
 - Contre-attaquer les alliés du chaytan
