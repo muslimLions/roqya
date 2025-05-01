@@ -14,6 +14,8 @@
 
 ## Plan de Cours
 
-### Séance 1 : 
-+ efefef
+### Séance 1 : Introduction et motivations
++ Pourquoi étudier ?
++ Les preuves d'existence des maux occultes dans la chariah
++ 
 
