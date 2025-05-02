@@ -21,15 +21,19 @@ _Présenter ici notre action_
 + Les preuves de leur existence dans la chariah
 + Une science expérimentale et spirituelle
 
-### Séance 2 : Précautions, protections et défense
+### Séance 2 : Connaître son ennemi
++ Les sorciers et sorcières 
++ L'agent magique : le Djin
++ Les jaloux et jalouses
++ Les ennemis de l'Islam
++ Soi-même !
+
+### Séance 3 : Précautions, protections et défense
 + Les invocations de protections
 + La protection de la maison
 + Les failles et faiblesses qui profitent à l'ennemi
 
-### Séance 3 : 
-+ 
-+ 
-+ 
+
 
 ### Séance 4 : 
 + 
@@ -41,3 +45,27 @@ _Présenter ici notre action_
 + 
 + 
 
+--------------------------------------------
+--------------------------------------------
+
++ Sorcellerie
+    - Types de sorcelleries
+    - L'agent magique
+    - Comment reconnaître un(e) sorcier(e)
+    - Annulation
+    - 
+
++ Mauvais oeil
+    - Comment l'annuler
+    - Comment s'en protéger
+
++ La jalouise
+    - Comment l'annuler
+    - Comment s'en protéger
+
++ Les pactes sataniques
+    - Comment l'annuler
+
++ Les talismans, bagues, pendantifs, ...
+
++ 
