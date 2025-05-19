@@ -32,18 +32,36 @@ _Présenter ici notre action_
 + Les invocations de protections
 + La protection de la maison
 + Les failles et faiblesses qui profitent à l'ennemi
++ Passer à l'attaque
+
+### Séance 4 : Le mauvais oeil
++ Qu'est-ce que le mauvais oeil ?
++ Quels sont les symptômes ?
++ Comment annuler le mauvais oeil ?
++ Comment s'en protéger ?
+
+### Séance 5 : La jalousie
++ Qu'est-ce que la jalousie ?
++ Quels sont les symptômes ?
++ Comment annuler la jalousie ?
++ Comment s'en protéger ?
+
+### Séance 6 : La sorcellerie
+
+
+### Séance 7 : La sorcellerie (suite)
 
 
 
-### Séance 4 : 
-+ 
-+ 
-+ 
+### Séance 8 : Les pactes sataniques
 
-### Séance 5 : 
-+ 
-+ 
-+ 
+
+### Séance 9 : Sujets divers
+
+
+### Séance 10 : Allah est la clé de toute chose
+
+
 
 --------------------------------------------
 --------------------------------------------
@@ -53,16 +71,7 @@ _Présenter ici notre action_
     - L'agent magique
     - Comment reconnaître un(e) sorcier(e)
     - Annulation
-    - 
-
-+ Mauvais oeil
-    - Comment l'annuler
-    - Comment s'en protéger
-
-+ La jalouise
-    - Comment l'annuler
-    - Comment s'en protéger
-
+ 
 + Les pactes sataniques
     - Comment l'annuler
 
