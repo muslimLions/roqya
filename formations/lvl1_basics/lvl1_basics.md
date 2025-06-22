@@ -1,7 +1,9 @@
 # Introduction à la Roqya et aux maux occultes -- Ce que tout(e) musulman(e) doit connaître
 
 ## Muslim Lions Roqya
-_Présenter ici notre action_
+Muslim Loins Roqya est un groupe de musulmans engagés dans la lutte active contre les alliés du Chaytan (diable). Son action est principalement orientée autour de l'action , l'information et la prévention autour des différents maux occultes présents dans la société. Ces maux sont de plus en plus répandus aujourd'hui, et les gens, plus particulièrement les musulmans, se retrouvent démunis ou désorientés face aux problèmes ou attaques qu'ils peuvent subir. Pouvant tomber dans le Chirk (association) ou entre les mains de charlatans qui peuvent les exploiter ou déteriorer leur situation, notre objectif est de leur donner en main toutes les solutions légiférées et suffisantes que l'Islam propose à ces problèmes.
+
+Cette formation constitue une introduction à ces problèmes et méthodes, et regroupe la base que tout musulman ou musulmane devrait connaître, pour son bien et celui de ses proches.
 
 ## Modalités
 + Sessions en ligne, vidéos enregistrées et disponibles après le séminaire
@@ -13,9 +15,8 @@ _Présenter ici notre action_
 + Intervenant : Ocelot Al Hanafi
 + Prix : Gratuit, avec participation libre (intention de sadaqa)
 
-## Plan de Cours
 
-### Section 1 : Introduction et motivations
+## Section 1 : Introduction et motivations
 + Pourquoi étudier ?
     * Pour ne pas tomber dans le chirk
     * Pour sortir de l'ignorance, la peur, et les superstitions
@@ -32,7 +33,7 @@ _Présenter ici notre action_
 + Les preuves de leur existence dans la chariah
 + Une science expérimentale et spirituelle
 
-### Section 2 : Connaître son ennemi
+## Section 2 : Connaître son ennemi
 + Ses proches et les inconnus
 + Soi-même !
 + Les jaloux et jalouses
@@ -40,38 +41,38 @@ _Présenter ici notre action_
 + L'agent magique : le Djin
 + Les ennemis de l'Islam
 
-### Section 3 : Précautions, protections et défense
+## Section 3 : Précautions, protections et défense
 + Les invocations de protections
 + La protection de la maison
 + Les failles et faiblesses qui profitent à l'ennemi
 + Passer à l'attaque
 
-### Section 4 : Le mauvais oeil
+## Section 4 : Le mauvais oeil
 + Qu'est-ce que le mauvais oeil ?
 + Quels sont les symptômes ?
 + Comment annuler le mauvais oeil ?
 + Comment s'en protéger ?
 
-### Section 5 : La jalousie
+## Section 5 : La jalousie
 + Qu'est-ce que la jalousie ?
 + Quels sont les symptômes ?
 + Comment annuler la jalousie ?
 + Comment s'en protéger ?
 
-### Section 6 : La sorcellerie
+## Section 6 : La sorcellerie
 
 
-### Section 7 : La sorcellerie (suite)
+## Section 7 : La sorcellerie (suite)
 
 
 
-### Section 8 : Les pactes sataniques
+## Section 8 : Les pactes sataniques
 
 
-### Section 9 : Sujets divers
+## Section 9 : Sujets divers
 
 
-### Section 10 : Allah est la clé de toute chose
+## Section 10 : Allah est la clé de toute chose
 
 
 
@@ -80,7 +81,31 @@ _Présenter ici notre action_
 
 + Sorcellerie
     - Types de sorcelleries
+        * Sorcellerie mangée/bue
+        * Sorcellerie aspergée (dans un lieu, contact physique)
+        * Sorcellerie déposée (dans le corps)
+        * Sorcellerie accrochée
+        * Sorcellerie enterrée
+        * Sorcellerie de blocage (noeuds et cadenas)
+        * Sorcellerie vaudou (poupée, animaux)
+        * Sorcellerie par objets (photos, autres objets propres)
+        * Sorcellerie par élément organique (cheveux, peau, sueur, sang, ...)
+        * Sorcellerie par talismans
+        * Sorcellerie dans les objets (habits, bagues, bijoux, ...)
+        * Sorcellerie de maladie
+        * Sorcellerie de folie
+        * Sorcellerie d'hallucinations (visuelle, auditive) (hawatif)
+        * Sorcellerie de séparation
+        * Sorcellerie de mort
+        * Sorcellerie 
+
     - L'agent magique
+        * Djin / Saakin / XXX / XXX / Maarid / 'Ifrit / Chaytan / Qarin
+        * Djins travaillant directement avec le sorcier / général
+        * Djins employé d'un autre djins / soumis par un autre djin
+        * Djins amoureux
+        * Djin roi
+        * 
     - Comment reconnaître un(e) sorcier(e)
     - Annulation
  
