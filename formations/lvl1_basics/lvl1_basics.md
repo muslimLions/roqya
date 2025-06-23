@@ -9,33 +9,38 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 + Sessions en ligne, vidéos enregistrées et disponibles après le séminaire
 + Document PDF fournit en fin de module servant de support pour la formation
 + Questions/réponses à chaque fin de séance
-+ Ouvert à tous (question et commentaires par écrit)
++ Ouvert à tous (questions et commentaires par écrit)
 + XX heures divisées en YY sessions de ZZ heures
 + Créneaux : XX de YYh à ZZh et XX de YYh à ZZh
 + Intervenant : Ocelot Al Hanafi
-+ Prix : Gratuit, avec participation libre (intention de sadaqa)
-
++ Prix : 15 euros 
 
 ## Section 1 : Introduction et motivations
-+ Pourquoi étudier ?
-    * Pour ne pas tomber dans le chirk
-    * Pour sortir de l'ignorance, la peur, et les superstitions
-    * Pour se protéger, soi même et les autres
-    * Pour se soigner, ou aider les autres
-    * Pour s'engager dans le combat et aider concrètement la Oummah
-+ Les différents types de maux occultes
-    * Le mauvais oeil ('Ayn)
-    * La jalousie (Hasad)
-    * La sorcellerie (Sihr)
-    * La possession (Mass)
-    * Les pactes sataniques ('Ouhoud)
-    * Et ceux dont nous n'avons pas connaissance
-+ Les preuves de leur existence dans la chariah
-+ Une science expérimentale et spirituelle
+### Pourquoi étudier ?
+* Pour ne pas tomber dans le chirk
+* Pour sortir de l'ignorance, la peur, et les superstitions
+* Pour se protéger, soi même et les autres
+* Pour se soigner, ou aider les autres
+* Pour s'engager dans le combat et aider concrètement la Oummah
+### Les différents types de maux occultes
+* Le mauvais oeil ('Ayn)
+* La jalousie (Hasad)
+* La sorcellerie (Sihr)
+* La possession (Mass)
+* Les pactes sataniques ('Ouhoud)
+* Et ceux dont nous n'avons pas connaissance
+### Les preuves de leur existence dans la chariah
+
+
+### Une science expérimentale et spirituelle
 
 ## Section 2 : Connaître son ennemi
 + Ses proches et les inconnus
 + Soi-même !
+    * La peur
+    * Les péchés, la musique, les mauvaises compagnie
+    * 
+    * 
 + Les jaloux et jalouses
 + Les sorciers et sorcières
 + L'agent magique : le Djin
@@ -60,7 +65,18 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 + Comment s'en protéger ?
 
 ## Section 6 : La sorcellerie
-
++ Définition : Accord entre un sorcier et un chaytan de faire un certain nombre d'actes interdits ou d'association en échage d'une aide ou d'une obéissance de la part du chaytan
++ Exemples d'actions que le (la) sorcièr(e) effectue pour se rapprocher du chaytan
+    - Placer le Coran sous ses pieds et entre avec aux toilettes
+    - Ecrire des versets du Coran avec de l'ordure / saletés / sang des règles
+    - Ecrire des versets du Coran sous ses pieds
+    - Ecrire du Coran à l'envers
+    - Prier sans ablutions
+    - Rester en état d'impureté
+    - Sacrifier pour le diable et ne pas mentionner le nom d'Allah
+    - Demander et se prosterner devant les planètes
+    - Commettre des meurtres, ou des actes horribles
+    - 
 
 ## Section 7 : La sorcellerie (suite)
 
@@ -107,6 +123,13 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
         * Djin roi
         * 
     - Comment reconnaître un(e) sorcier(e)
+        * Paroles bizarres, incompréhensibles, ni arabe, ni français, ni coran, ni dou3a
+        * Demande le nom de la mère
+        * Demande un vêtement, une chose propre au patient
+        * Demande un rituel, un acte, un animal particulier
+        * Visage sombre et obscure, plongé dans les ténèbres
+        * Vit une vie de souffrance et non tranquille, ne peut dormir, sursaute dans le sommeil, voit ses enfants ou son compagnon touché et attaqué par les diables, etc.
+
     - Annulation
  
 + Les pactes sataniques
