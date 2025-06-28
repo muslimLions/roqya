@@ -38,9 +38,9 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 + Ses proches et les inconnus
 + Soi-même !
     * La peur
-    * Les péchés, la musique, les mauvaises compagnie
-    * 
-    * 
+    * Les péchés, la musique, la mauvaise compagnie
+    * L'orgueil,
+    * Le désespoir en Allah, le manque de foi
 + Les jaloux et jalouses
 + Les sorciers et sorcières
 + L'agent magique : le Djin
