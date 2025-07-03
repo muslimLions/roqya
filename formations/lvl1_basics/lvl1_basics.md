@@ -17,22 +17,34 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 
 ## Section 1 : Introduction et motivations
 ### Pourquoi étudier ?
-* Pour ne pas tomber dans le chirk
-* Pour sortir de l'ignorance, la peur, et les superstitions
-* Pour se protéger, soi même et les autres
-* Pour se soigner, ou aider les autres
-* Pour s'engager dans le combat et aider concrètement la Oummah
++ Pour ne pas tomber dans le chirk
++ Pour sortir de l'ignorance, la peur, et les superstitions
++ Pour se protéger, soi même et les autres
++ Pour se soigner, ou aider les autres
++ Pour s'engager dans le combat et aider concrètement la Oummah
 ### Les différents types de maux occultes
-* Le mauvais oeil ('Ayn)
-* La jalousie (Hasad)
-* La sorcellerie (Sihr)
-* La possession (Mass)
-* Les pactes sataniques ('Ouhoud)
-* Et ceux dont nous n'avons pas connaissance
++ Le mauvais oeil ('Ayn)
++ La jalousie (Hasad)
++ La sorcellerie (Sihr)
++ La possession (Mass)
++ Les pactes sataniques ('Ouhoud)
++ Et ceux dont nous n'avons pas connaissance
 ### Les preuves de leur existence dans la chariah
 
 
 ### Une science expérimentale et spirituelle
++ Récits de roqya / hadiths
+    * Histoire du prophète saws
+    * Récit du compagnon qui faisait roqya avec la fatiha du scorpion
+    * Récits de compagnons qui faisaient roqya au kafirs
+    * Paroles de grand savats (ibn taymiyah notamment)
+    * Récit du prophète saws qui leur demande de montrer ce avec quoi ils faisaient roqya --> tant que ça ne comporte pas de chirk (transition)
++ Tout est autorisé sauf le chirk
+    * On teste, on regarde ce qui fonctionne, expérimentale
+    * Le coran, les dou'as, les invocations, sous différentes formes
+    * Médecine prophétique, connaissance des plantes, ...
+    * Allah donne la guérison, et est notre seigneur, donc nous on se tourne vers Lui
++ Diversité des techniques
 
 ## Section 2 : Connaître son ennemi
 + Ses proches et les inconnus
@@ -41,6 +53,7 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
     * Les péchés, la musique, la mauvaise compagnie
     * L'orgueil,
     * Le désespoir en Allah, le manque de foi
+    * Le mavais oeil sur nous même et les autres
 + Les jaloux et jalouses
 + Les sorciers et sorcières
 + L'agent magique : le Djin
@@ -65,7 +78,7 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 + Comment s'en protéger ?
 
 ## Section 6 : La sorcellerie
-+ Définition : Accord entre un sorcier et un chaytan de faire un certain nombre d'actes interdits ou d'association en échage d'une aide ou d'une obéissance de la part du chaytan
++ Définition : Accord entre un sorcier et un chaytan de faire un certain nombre d'actes interdits ou d'association en échage d'une aide ou d'une obéissance de sa part
 + Exemples d'actions que le (la) sorcièr(e) effectue pour se rapprocher du chaytan
     - Placer le Coran sous ses pieds et entre avec aux toilettes
     - Ecrire des versets du Coran avec de l'ordure / saletés / sang des règles
@@ -85,10 +98,13 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 ## Section 8 : Les pactes sataniques
 
 
-## Section 9 : Sujets divers
+## Section 9 : Le déroulement d'une roqya
 
 
-## Section 10 : Allah est la clé de toute chose
+## Section 10 : Sujets divers
+
+
+## Section 11 : Allah est la clé de toute chose
 
 
 
