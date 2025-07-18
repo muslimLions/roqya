@@ -20,6 +20,8 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 + Pour ne pas tomber dans le chirk
 + Pour sortir de l'ignorance, la peur, et les superstitions
 + Pour se protéger, soi même et les autres
+    * Personne n'est à l'abri: la piété, adoration etc ne sont pas une protection infinie. Même le prophète saws a été touché
+
 + Pour se soigner, ou aider les autres
 + Pour s'engager dans le combat et aider concrètement la Oummah
 ### Les différents types de maux occultes
@@ -33,12 +35,17 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 
 
 ### Une science expérimentale et spirituelle
++ Science à cheval etre religion et médecine
+    * Utilisation du Coran et médecine prophétique
+    * Toujours un avis médical au préalable avant de s'engager dans la piste occulte
+    * Admet l'expérience et la découverte de nouvelles technique, qui évoluent, sans sortir du cadre islamique.
 + Récits de roqya / hadiths
     * Histoire du prophète saws
     * Récit du compagnon qui faisait roqya avec la fatiha du scorpion
     * Récits de compagnons qui faisaient roqya au kafirs
     * Paroles de grand savats (ibn taymiyah notamment)
     * Récit du prophète saws qui leur demande de montrer ce avec quoi ils faisaient roqya --> tant que ça ne comporte pas de chirk (transition)
+> Nous pratiquions la roqa avant l'islam. Pouvons-nous continuer ?, Il dit (saws) :  Faites comme vous faisiez et n'utilisez pas de chirk. 
 + Tout est autorisé sauf le chirk
     * On teste, on regarde ce qui fonctionne, expérimentale
     * Le coran, les dou'as, les invocations, sous différentes formes
@@ -91,7 +98,28 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
     - Commettre des meurtres, ou des actes horribles
     - 
 
-## Section 7 : La sorcellerie (suite)
++ La sorcellerie de séparation du couple
+    * Probablement la plus répandue
+
+> « ils apprennent auprès d’eux, ce qui sème la désunion entre l’homme et son épouse » La Vache, 2/102
+
++ Sorcellerie mangée/bue
++ Sorcellerie aspergée (dans un lieu, contact physique)
++ Sorcellerie déposée (dans le corps)
++ Sorcellerie accrochée
++ Sorcellerie enterrée
++ Sorcellerie de blocage (noeuds et cadenas)
++ Sorcellerie vaudou (poupée, animaux)
++ Sorcellerie par objets (photos, autres objets propres)
++ Sorcellerie par élément organique (cheveux, peau, sueur, sang, ...)
++ Sorcellerie par talismans
++ Sorcellerie dans les objets (habits, bagues, bijoux, ...)
++ Sorcellerie de maladie
++ Sorcellerie de folie
++ Sorcellerie d'hallucinations (visuelle, auditive) (hawatif)
++ Sorcellerie de séparation
++ Sorcellerie de mort
++ Sorcellerie ...
 
 
 
