@@ -10,10 +10,10 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 + Document PDF fournit en fin de module servant de support pour la formation
 + Questions/réponses à chaque fin de séance
 + Ouvert à tous (questions et commentaires par écrit)
-+ XX heures divisées en YY sessions de ZZ heures
-+ Créneaux : XX de YYh à ZZh et XX de YYh à ZZh
++ 7 heures divisées en 7 sessions de 1 heure
++ Créneaux : Tous les soirs de 21h à 22h, du 4 au 10 aôut
 + Intervenant : Ocelot Al Hanafi
-+ Prix : 15 euros 
++ Prix : Gratuit (sadaqah pour ceux qui veulent paritciper) 
 
 ## Section 1 : Introduction et motivations
 ### Pourquoi étudier ?
@@ -21,7 +21,6 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 + Pour sortir de l'ignorance, la peur, et les superstitions
 + Pour se protéger, soi même et les autres
     * Personne n'est à l'abri: la piété, adoration etc ne sont pas une protection infinie. Même le prophète saws a été touché
-
 + Pour se soigner, ou aider les autres
 + Pour s'engager dans le combat et aider concrètement la Oummah
 ### Les différents types de maux occultes
@@ -30,9 +29,26 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 + La sorcellerie (Sihr)
 + La possession (Mass)
 + Les pactes sataniques ('Ouhoud)
++ Être cible des djins
 + Et ceux dont nous n'avons pas connaissance
++ Allah les a crée, nous éprouve avec, et possède toute la puissance pour les détruire
 ### Les preuves de leur existence dans la chariah
 
+> a
+
+> a
+
+> a
+
+> a
+
+> a
+
+>  a
+
+>  a
+
+> a
 
 ### Une science expérimentale et spirituelle
 + Science à cheval etre religion et médecine
@@ -55,12 +71,16 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 
 ## Section 2 : Connaître son ennemi
 + Ses proches et les inconnus
+    * Potentiellement tout le monde est susceptible de nous farie subir un mal occulte, parfois involontairement
+    * Les gens parlent, en bien ou en mal des autres, comérages, "ah t'as vu untel", "ah t'as vu mon fils", ...
+    * Il existe des diables humains et djins, dont le seul but est de répandre le mal sur Terre.
 + Soi-même !
     * La peur
     * Les péchés, la musique, la mauvaise compagnie
-    * L'orgueil,
+    * L'orgueil
     * Le désespoir en Allah, le manque de foi
     * Le mavais oeil sur nous même et les autres
+    * Débaler sa vie auprès des gens, sur les réseaux sociaux, photos, vidéos etc.
 + Les jaloux et jalouses
 + Les sorciers et sorcières
 + L'agent magique : le Djin
@@ -100,15 +120,18 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 
 + La sorcellerie de séparation du couple
     * Probablement la plus répandue
+    * On la retrouve combinée avec de la jalousie ou du mauvais oeil
 
-> « ils apprennent auprès d’eux, ce qui sème la désunion entre l’homme et son épouse » La Vache, 2/102
+
+> « ils apprennent auprès d’eux, ce qui sème la séparation entre l’homme et son épouse » La Vache, 2/102
 
 + Sorcellerie mangée/bue
 + Sorcellerie aspergée (dans un lieu, contact physique)
 + Sorcellerie déposée (dans le corps)
++ Sorcellerie de blocage (noeuds et cadenas)
 + Sorcellerie accrochée
 + Sorcellerie enterrée
-+ Sorcellerie de blocage (noeuds et cadenas)
+
 + Sorcellerie vaudou (poupée, animaux)
 + Sorcellerie par objets (photos, autres objets propres)
 + Sorcellerie par élément organique (cheveux, peau, sueur, sang, ...)
