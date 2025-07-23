@@ -83,8 +83,18 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
     * Débaler sa vie auprès des gens, sur les réseaux sociaux, photos, vidéos etc.
 + Les jaloux et jalouses
 + Les sorciers et sorcières
-+ L'agent magique : le Djin
 + Les ennemis de l'Islam
+
+### L'agent magique : le Djin
++ 
++ 
++ 
++ Types de djins : 
+    * Djin / Saakin / XXX / XXX / Maarid / 'Ifrit / Chaytan / Qarin
+    * Djins travaillant directement avec le sorcier / général
+    * Djins employé d'un autre djins / soumis par un autre djin
+    * Djins amoureux
+    * Djin roi
 
 ## Section 3 : Précautions, protections et défense
 + Les invocations de protections
@@ -116,33 +126,61 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
     - Sacrifier pour le diable et ne pas mentionner le nom d'Allah
     - Demander et se prosterner devant les planètes
     - Commettre des meurtres, ou des actes horribles
-    - 
+    - etc.
++ Comment reconnaître un(e) sorcier(e)
+    * Paroles bizarres, incompréhensibles, ni arabe, ni français, ni coran, ni dou3a
+    * Demande le nom de la mère
+    * Demande un vêtement, une chose propre au patient
+    * Demande un rituel, un acte, un animal particulier
+    * Visage sombre et obscure, plongé dans les ténèbres
+    * Vit une vie de souffrance et non tranquille, ne peut dormir, sursaute dans le sommeil, voit ses enfants ou son compagnon touché et attaqué par les diables, etc.
 
-+ La sorcellerie de séparation du couple
-    * Probablement la plus répandue
-    * On la retrouve combinée avec de la jalousie ou du mauvais oeil
-
-
-> « ils apprennent auprès d’eux, ce qui sème la séparation entre l’homme et son épouse » La Vache, 2/102
-
+### Les différents moyens d'être touché
 + Sorcellerie mangée/bue
 + Sorcellerie aspergée (dans un lieu, contact physique)
 + Sorcellerie déposée (dans le corps)
-+ Sorcellerie de blocage (noeuds et cadenas)
 + Sorcellerie accrochée
 + Sorcellerie enterrée
-
 + Sorcellerie vaudou (poupée, animaux)
 + Sorcellerie par objets (photos, autres objets propres)
 + Sorcellerie par élément organique (cheveux, peau, sueur, sang, ...)
 + Sorcellerie par talismans
 + Sorcellerie dans les objets (habits, bagues, bijoux, ...)
++ Sorcellerie héritée
++ Sorcellerie des étoiles et astres
++ Sorcellerie en chaine/périodique
+
+### Les types de sorcellerie (buts et effets    )
++ La sorcellerie de séparation du couple
+    * Probablement la plus répandue, cause de destruction de divers foyers
+    * On la retrouve combinée avec de la jalousie ou du mauvais oeil
+    * Le mari/femme ne supporte plus tout à coup son conjoint (disputes futiles, dégoût, éloignement dans le lit, ...)
+    * Se manifeste parfois par d'autres causes qui peuvent pousser à la séparation : problèmes pour enfanter, manque de vigueur chez l'homme, problèmes de règles, fausses couches, ...
+    * Dans ce cas on préconise au couple (les deux) de se traiter en simultané
+    * Remarque : les symptômes de la sorcellerie de séparation a des intersections avec les symptômes de présence d'un(e) djin amoureux(se) --> il(elle) va chercher à séparer
+
+    > « ils apprennent auprès d’eux, ce qui sème la séparation entre l’homme et son épouse » Sourate Al Baqarah v102
+
++ La sorcellerie de blocage (noeuds et cadenas)
+    * Sorcellerie dont la symbolique est celle du blocage, de la fermeture, se réalise avec des noeuds sur lesquelles ils soufflent
+
+    > « contre le mal de celles qui soufflent [les sorcières] sur les nœuds, » Sourate Al Falaq v4
+
+    * Blocage pour le travail, trouver du travail, projets professionnels bloqués ou échouent, pas de motivation, pas d'ambition
+    * Blocage pour les études, capacité cognitives limitées, du mal à se concentrer, aucune motivation pour étudier
+    * Blocage pour le mariage, refus de prétendant(e)s sans raison rationnelle, annulage de dernière minute, ...
+    * Blocage pour les enfants, non-expliqué médicalement, du mal à avoir des enfants après une longue période, fausses couches etc 
+
 + Sorcellerie de maladie
++ Sorcellerie d'attachement, asservissement
++ 
 + Sorcellerie de folie
 + Sorcellerie d'hallucinations (visuelle, auditive) (hawatif)
-+ Sorcellerie de séparation
 + Sorcellerie de mort
 + Sorcellerie ...
+
+### Annulation des sorcelleries
+
 
 
 
@@ -163,41 +201,7 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 --------------------------------------------
 
 + Sorcellerie
-    - Types de sorcelleries
-        * Sorcellerie mangée/bue
-        * Sorcellerie aspergée (dans un lieu, contact physique)
-        * Sorcellerie déposée (dans le corps)
-        * Sorcellerie accrochée
-        * Sorcellerie enterrée
-        * Sorcellerie de blocage (noeuds et cadenas)
-        * Sorcellerie vaudou (poupée, animaux)
-        * Sorcellerie par objets (photos, autres objets propres)
-        * Sorcellerie par élément organique (cheveux, peau, sueur, sang, ...)
-        * Sorcellerie par talismans
-        * Sorcellerie dans les objets (habits, bagues, bijoux, ...)
-        * Sorcellerie de maladie
-        * Sorcellerie de folie
-        * Sorcellerie d'hallucinations (visuelle, auditive) (hawatif)
-        * Sorcellerie de séparation
-        * Sorcellerie de mort
-        * Sorcellerie 
 
-    - L'agent magique
-        * Djin / Saakin / XXX / XXX / Maarid / 'Ifrit / Chaytan / Qarin
-        * Djins travaillant directement avec le sorcier / général
-        * Djins employé d'un autre djins / soumis par un autre djin
-        * Djins amoureux
-        * Djin roi
-        * 
-    - Comment reconnaître un(e) sorcier(e)
-        * Paroles bizarres, incompréhensibles, ni arabe, ni français, ni coran, ni dou3a
-        * Demande le nom de la mère
-        * Demande un vêtement, une chose propre au patient
-        * Demande un rituel, un acte, un animal particulier
-        * Visage sombre et obscure, plongé dans les ténèbres
-        * Vit une vie de souffrance et non tranquille, ne peut dormir, sursaute dans le sommeil, voit ses enfants ou son compagnon touché et attaqué par les diables, etc.
-
-    - Annulation
  
 + Les pactes sataniques
     - Comment l'annuler
