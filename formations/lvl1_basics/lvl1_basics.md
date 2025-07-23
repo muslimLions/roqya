@@ -172,6 +172,14 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
     * Blocage pour les enfants, non-expliqué médicalement, du mal à avoir des enfants après une longue période, fausses couches etc 
 
 + Sorcellerie de maladie
+    * La sorcellerie peut causer des dérèglements, douleurs et maladie importantes pour la santé : stérilité, cancer, diabète, insufisances, poumons, eczéma, chute de cheveux, maladie autoimmune ou inconnues, ...
+    * Des douleurs inexplicables, mal de tête et migraines, démangeaisons, problèmes neuronaux ou nerveux, lésions cérébrales, ventre, jambes et articulations, douleur qui se propage et progresse dans tout le corps (cas d'une personne qui a vu 14 spécialistes, ...), muscles, os, 5 sens, défense immunitaire, ...
+    * Souvent les médecins ne comprennent pas la source/cause, parfois tout est normal mais la personne souffre, parfois il y a un problème mais c'est la première fois qu'ils voient ça, parfois une maladie est détectée mais on ne peut expliquer sa présence, souvent les traitement sont inexistants ou inneficaces, parfois la maladie s'adapte au traitement
+    * Parfois peut venir amplifier une maladie ou pathologie présente
+    * Concerne aussi les maladies pshyciatriques (schyzophrénie, bipolarité, troubles de la personnalité, paranoia, ...), ou viennent amplifier un terrain favorable
+    * Le djin qui travaille cette sorcellerie, ou la sorcellerie elle même vient affecter physiquement le corps, et les symptomes cliniques sont souvent les mêmes que des maladies connues
+
+
 + Sorcellerie d'attachement, asservissement
 + 
 + Sorcellerie de folie
