@@ -16,21 +16,54 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 + Prix : Gratuit (sadaqah pour ceux qui veulent paritciper) 
 
 ## Section 1 : Introduction et motivations
+
 ### Pourquoi étudier ?
 + Pour ne pas tomber dans le chirk
-+ Pour sortir de l'ignorance, la peur, et les superstitions
++ Pour se rapprocher d'Allah, et détruire les obstacles ou barrières aux adorations (personens touchées)
++ Pour sortir de l'ignorance, la peur (du chaytan), et les superstitions
 + Pour se protéger, soi même et les autres
     * Personne n'est à l'abri: la piété, adoration etc ne sont pas une protection infinie. Même le prophète saws a été touché
-+ Pour se soigner, ou aider les autres
-+ Pour s'engager dans le combat et aider concrètement la Oummah
-### Les différents types de maux occultes
-+ Le mauvais oeil ('Ayn)
-+ La jalousie (Hasad)
-+ La sorcellerie (Sihr)
-+ La possession (Mass)
-+ Les pactes sataniques ('Ouhoud)
-+ Être cible des djins
-+ Et ceux dont nous n'avons pas connaissance
++ Pour se soigner, ou aider les autres et repousser les injustices qu'ils ont subi
+    * Ceux qui ne sont pas dans le domaine ne le voient peut être pas, mais il y a beaucoup, beaucoup de personnes qui sont touchées, pour la plupart ne le savent même pas,
++ Repousser les chayatins et détruire le travail des sorciers
+    * Un seul sorcier dans une région/ville peut être d'un inpact néfaste destructeur
++ Pour s'engager dans le combat pour Allah (djihad, citer ibn taiymiah), et aider concrètement la Oummah
+### A qui s'adresse cette science ?
++ Cette science est souvent classée dans la catégorie des sciences qui soignent, de la médecine
++ C'est une obligation suffisante (fardh kifayah) pour les musulmans,
++ Il est bon que tous les musulmans possèdent les bases, tout comme il est bon pour la médecine traditionnelle
+### Sur quoi se base-t-elle ?
++ Du Coran, 
++ De la Sunnah,
++ Des sciences et expériences en médecine,
++ Il est parfois également utile de faire appel à la sience d'interprétation des rêves,  
++ La science des plantes, et leur effet sur les différentes maladies, ainsi que les quantités et posoligies, donc éventuellement biologie
++ Il est bon aussi d'avoir des bases en psychiatrie/psychologie, pour différencier des cas de mal occultes et des vrais maladies psychiatriques (on peut avoir les deux à la fois).
++ Il peut être utile également de comprendre les manoeuvres et modes opératoires des sorciers (lieux où ils les mettent, etc) --> Connaitre le mal pour ne pas y tomber / pour le combattre
+> Exemple des raqiy a qui ont ramène une sorcellerie écrite qui disent "vasy brûle là", mais les sorciers savent ceci et ont mis des pièges ou sorcellerie aspergées ou senties, et si on brûle le premier, la second sorcellerie s'active et se propage
+### Quel est son statut en islam
++ Les savants reconnaissent cette science (notamment Ach-chafi'iy, Ibn Taymiyah)
++ Les savants ont posé cependant 3 conditions:
+    1. Que ses paroles/traitement soient exclusivement du Coran, de la Sunnah et des invocations 
+    2. Qu'il soit en langue arabe, ou qu'il soit dans une langue compréhensible par l'entourage
+    3. Qu'il soit clair que la roqya ne fait pas effet par elle même, ni par l'action du raqiy en lui même, mais seulement par la permission et la volonté d'Allah
++ Statut de l'écriture du Coran ou du nom d'Allah (nouchrah en arabe) puis la dilution dans l'eau
+    * Il y a une différence etre cela, et un talisman
+    * Ceci est autorisé, notamment par Sheikh Ibn Taymiyah, ou sheikh Ibn 'Utheymine, les Malikites, les Hanafites, la majorité des savants (sauf les shafiite et les hanbalites)
+    * Il a été rapporté que notre mère 'Aicha (as) le pratiquait
+### Les sujets abordés
++ Les maux occultes, la sorcellerie et les sorciers ont toujous existé depuis la nuit des temps
+> "	Ainsi, aucun Messager n'est venu à leurs prédécesseurs sans qu'ils n'aient dit: « C'est un magicien ou un possédé ! »" Sourate AD-DARIYAT, v52
++ Le raqiy, ses caractéristiques, et son travail et méthode
++ Le malade, ses maux et ce qui lui incombe (traitement, relation avec le raqiy, relation avec Allah)
++ Les différents types de maux occultes et leur diagnostic
+    * Le mauvais oeil ('Ayn)
+    * La jalousie (Hasad)
+    * La sorcellerie (Sihr)
+    * La possession (Mass)
+    * Les pactes sataniques ('Ouhoud)
+    * Être cible des djins
+    * Et ceux dont nous n'avons pas connaissance
 + Allah les a crée, nous éprouve avec, et possède toute la puissance pour les détruire
 ### Les preuves de leur existence dans la chariah
 
@@ -44,11 +77,13 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 
 > a
 
->  a
-
->  a
+> a
 
 > a
+
+> a
+
++ Celui qui rejette l'existence de ces maux occultes, et l'existence de la sorcellerie a commit un acte de mécréance, car cela va l'encontre des textes et de notre croyance
 
 ### Une science expérimentale et spirituelle
 + Science à cheval etre religion et médecine
@@ -61,7 +96,7 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
     * Récits de compagnons qui faisaient roqya au kafirs
     * Paroles de grand savats (ibn taymiyah notamment)
     * Récit du prophète saws qui leur demande de montrer ce avec quoi ils faisaient roqya --> tant que ça ne comporte pas de chirk (transition)
-> Nous pratiquions la roqa avant l'islam. Pouvons-nous continuer ?, Il dit (saws) :  Faites comme vous faisiez et n'utilisez pas de chirk. 
+> Selon 'Awf Ibn Malik, Nous pratiquions la roqa avant l'islam. Quel est ton avis sur cela ?, Il dit (saws) : Amener à moi vos Roqya, il n'y a pas de mal aux riqya tant qu'elles ne contiennent pas de chirk. 
 + Tout est autorisé sauf le chirk
     * On teste, on regarde ce qui fonctionne, expérimentale
     * Le coran, les dou'as, les invocations, sous différentes formes
@@ -144,11 +179,17 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 + Sorcellerie vaudou (poupée, animaux)
 + Sorcellerie par objets (photos, autres objets propres)
 + Sorcellerie par élément organique (cheveux, peau, sueur, sang, ...)
-+ Sorcellerie par talismans
 + Sorcellerie dans les objets (habits, bagues, bijoux, ...)
++ Sorcellerie par talismans ou pendentifs
+    * Ecritures sur un papier, renfermées puis accrochées autour du cou ou portées
+    * La majorité des savants, notamment l'avis Ibn Mas'oud est ses compagnons, est que c'est interdit même s'il n'y figure que des versets, mails y a divergence (s'il y a que des versets)
+    * Le risque est qu'au milieu des versets se glisse du chirk (paroles ou crorie que la pendentif la protège) ou des formules magiques
+    * Sont inclus dans les type de sorcellerie la numérologie, les carrés magiques ou les talismans avec noms d'Allah et valeurs etc, souvent correspondent à des noms de djins, et constituent une sorcellerie
+    * Certains raqiy en donnent, et disent de toujours la porter, et de ne jamais l'ouvrir --> potentiellement charlatan et d'une sorcellerie
 + Sorcellerie héritée
 + Sorcellerie des étoiles et astres
 + Sorcellerie en chaine/périodique
+
 
 ### Les types de sorcellerie (buts et effets    )
 + La sorcellerie de séparation du couple
@@ -197,6 +238,11 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 
 ## Section 9 : Le déroulement d'une roqya
 
+### Le raqiy
++ Personnes qui va diagnostiquer, conduire la roqya et prescrire le traitement
++ Il se distingue par sa piété tout d'abord, et par son expérience dans le choix des versets/dou'a et du traitement
++ S'engage dans la lutte contre les alliés du diable, et pour aider la communauté contre les maux occultes et les maladies physiques (conjointement avec la médecine)
++ Il peut aussi être touché par les maux occultes, et doit également pratiquer lui-même la roqya et les traitements associés, ainsi que sa famille et sa maison
 
 ## Section 10 : Sujets divers
 
@@ -217,3 +263,19 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 + Les talismans, bagues, pendantifs, ...
 
 + 
+
+
+--------------------------------------------
+--------------------------------------------
+##  Cours youtube video notes - Abu Zayd Al Jazairiy
+
+- la Roqya, définition, lignuististiquement réciter, rappeler,s'éleveer, monter (en hauteur),
+on appelle roqya car celle élève celui qui la récite, et élève et enlève la maladie de celui qui l'a possède
+- une autre définition: c'est la récitation de mots ou phrase du coran ou dou'a particulières, avec des actions ou geste particuliers, de par le raqiy ou le malade, avec intention de guérison, par laquelle des maladies, maux, ou causes malfaisantes partent par la permission d'Allah, 
+- La roqya s'applique donc pour les maux spirituels (rouhiya), mais aussi physiques, comme les maladies physiques etc, mais aussi pour les maladies du coeur (orgueil, ... )
+
+> Selon Abou Sa'id al Khoudhriy, il y avait des compagnons du prophète saws qui étaient en voyage. Ils sont passés devant des arabes, ils leur ont demandé de les invités, mais ils ont refusé. Ils leur ont demandé "est-ce que vous avez parmi vous un raqiy ?" (la roqya était connue avant l'islam), "car le chef du secteur est malade/touché/piqué/empoisonné". Un des hommes des compagnons a dit : "Oui il y en a", alors il est venu à lui, et lui a fait roqya avec Sourate Al Fatiha, et l'homme a été guéri. En guise de récompense, ils lui ont donné une partie de leur troupeau, mais l'homme n'a pas voulu accepter, pas avant de mentionner cela au prophète saws. Il est alros allé voir le prophète saws, et lui a raconté cela, et lui a dit "Ô messager d'Allah, wallahi je n'ai recité qu'avec l'ouverture du coran", le prophète saws sourris et dit : "et qui t'a informé qu'elle était une roqya ? prenez les, et donnez moi également une partie",  [URA]
+Cela vient indiquer également qu'il est autorisé au raqiy d'accepter la récompense donnée par le malade pour la roqya; 
+
+> Selon 'Aicha , le prophète saws lorsqu'il se plaignait récitait sur lui mêmes les 2 sourate protectrices (al mou'awhidhat) puis il soufflait. Quand la douleur s'est amplifiée, je lui récitait dessus, et essuyait avec ses mains, en recherchant leur barakah [URA]
+
