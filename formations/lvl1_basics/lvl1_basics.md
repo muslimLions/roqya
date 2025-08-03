@@ -62,7 +62,7 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
     * La sorcellerie (Sihr)
     * La possession (Mass)
     * Les pactes sataniques ('Ouhoud)
-    * Être cible des djins
+    * Être cible des djins (el mess, ...) pour diverses raisons
     * Et ceux dont nous n'avons pas connaissance
 + Allah les a crée, nous éprouve avec, et possède toute la puissance pour les détruire
 ### Les preuves de leur existence dans la chariah
@@ -125,11 +125,21 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 + 
 + 
 + Types de djins : 
-    * Djin / Saakin / XXX / XXX / Maarid / 'Ifrit / Chaytan / Qarin
+    * Le djinny: est juste là, djin de base
+    * Le Djin 'aamir : il vient vivre parmis les gens, et profite de leur toit
+    * Le Djin Awa7, celui qui vient déranger les enfants et les faire peurt
+    * Le Djin chaytan, s'il fait du mal aux gens (douleurs, dérangement, sorcelleries, etc) / 
+    * Le Djin Maarid : encore plus néfaste que le précédent
+    * Le Djin 'Ifrit : s'il est encore plus néfaste, et il est plus fort (exemple de souleyman, trône)
+    * Le Djin Qarin : 
+    * Le Djin Malik : le djin roi, qu ia un ceratin pouvoir, une stature sociale, une force par rapport au djin basique
+    * Différents autres djins (volant, de l'eau, etc. )
     * Djins travaillant directement avec le sorcier / général
     * Djins employé d'un autre djins / soumis par un autre djin
-    * Djins amoureux
-    * Djin roi
+    * Le Djin 'achiq : Djins amoureux
++ Retour au mess: c'est quand un djin vient faire du mal à un être humain, sans qu'il y ait un intermédiaire humain (sans 3ayn, sans sorcellerie)
++ Raisons pour lesquelles le djin peut s'en prendre à nous:
+    * dd
 
 ## Section 3 : Précautions, protections et défense
 + Les invocations de protections
@@ -259,10 +269,15 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 + S'engage dans la lutte contre les alliés du diable, et pour aider la communauté contre les maux occultes et les maladies physiques (conjointement avec la médecine)
 + Il peut aussi être touché par les maux occultes, et doit également pratiquer lui-même la roqya et les traitements associés, ainsi que sa famille et sa maison
 
-## Section 10 : Sujets divers
+### Le diagnostic 
+
+## Sujet 10 : Le traitement
 
 
-## Section 11 : Allah est la clé de toute chose
+## Section 11 : Sujets divers
+
+
+## Section 12 : Allah est la clé de toute chose
 
 
 
