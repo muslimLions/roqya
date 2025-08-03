@@ -134,6 +134,21 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 ## Section 3 : Précautions, protections et défense
 + Les invocations de protections
 + La protection de la maison
+    * Lire Sourate al baqarah
+    > Citer le hadith
+    * Propreté, pureté, bonne odeurs (parfum, encens (coranisés), musc (noir, blanc), ...)
+    * Couvrir la nourriture
+    * Asperger de l'eau coranique dans la maison (sur les murs, plafonds, ouvertures de portes, les coins, ...). Dans les toilettes on peut asperger de l'eau salée, ou avec du sidr par exemple. 
+    * Certains produits font fuire les djins (par experience) : vinaigre, sidr (jujubier), ...
+    * Réciter du Coran à haute voix, faire le adhan, ne pas désobir à Allah, faire les prières surrerogatoires, que ce soit un lieu de piété pour que les anges le fréquentent
+    * Faire les invocations en entrant et sortant de la maison
+    > Bismillahi kharadjna, bismillahi waladjna, wa 'ala rabbina tawakkalna
+    * Dire bismillah en fermant les portes/fenêtres, les djins ne pourront pas rentrer. Dormir avec la porte fermée
+    * Dire bismillah en rentrant aux toilettes, avant de manger, avant de se désabiller, etc
+    * Ne pas laisser les fenêtres sans rideaux, l'intérieur visible de l'extérieur (la nuit avec la lumière, fermer les volets), ...
+
+
+    
 + Les failles et faiblesses qui profitent à l'ennemi
 + Passer à l'attaque
 
@@ -278,4 +293,6 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
 Cela vient indiquer également qu'il est autorisé au raqiy d'accepter la récompense donnée par le malade pour la roqya; 
 
 > Selon 'Aicha , le prophète saws lorsqu'il se plaignait récitait sur lui mêmes les 2 sourate protectrices (al mou'awhidhat) puis il soufflait. Quand la douleur s'est amplifiée, je lui récitait dessus, et essuyait avec ses mains, en recherchant leur barakah [URA]
+
+
 
