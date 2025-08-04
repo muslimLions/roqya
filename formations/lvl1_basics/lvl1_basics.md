@@ -134,8 +134,11 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
     * Le mavais oeil sur nous même et les autres
     * Débaler sa vie auprès des gens, sur les réseaux sociaux, photos, vidéos etc.
 + Les jaloux et jalouses
+    * Les personnes jalouses qui veulent ce que vous avez, et votre destruction ou votre perte sont une source de problème et de mal volontaire de leur part
+    * Il faut les identifier et les éloigner de sa vie, ou occulter au maximum les ni'ma qu'Allah nous donne pour atténuer leur jalousie quand on peut
+    * Malheureusement, on en a de très proches, des amis, de la famille, et cela implique que dans une certaine mesure, ils ne vous veulent pas toujours du bien
 + Les sorciers et sorcières
-    - Comment reconnaître un(e) sorcier(e)
+    * Comment reconnaître un(e) sorcier(e)
         * Paroles bizarres, incompréhensibles, ni arabe, ni français, ni coran, ni dou3a. Il prononce des mots, ou les ramone, dont on ne comprends pas le sens. Il peut parfois les placer entre des versets pour faire genre.
         * Demande le nom de la mère (et le nom de la personne souvent)
         * Demande un vêtement, une chose propre au patient
@@ -146,7 +149,10 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
         * Il ne respecte pas les interdits, il est des plus malhonnêtes,
         * Il faut une preuve et des témoins pour pouvoir accuser quelqu'un
         * Celui qui écrit des feuilles ou talismans, dans lesquelles il n'y a pas que des versets, il y a des mots incompréhensibles, et bizarre, des chiffres, des figures ou carrés magiques etc , et lui ordonne de ne pas ouvrir sous aucun prétexte.
-    - Différence entre sorcier et prestidigitateur :
+    * Souvent on a affaire à un sorcier par l'intermédiaire de quelqu'un qui vient lui demander un travail
+    * Il peut arriver qu'on soit directement visé par le sorcier lui même, car une cible qu'il a choisi pour ses intérêts, ou car vous contre-carrez ses plans, ou autre. Dans ce cas c'est une guerre qui est déclarée.
+    * On peut aussi être affecté par les conséquences de la sorcellerie qu'effectue certains de nos proches, ou qu'on effectué nos ancètres, et donc on est victimes par proximité et affecté par son mal
+    * Différence entre sorcier et prestidigitateur :
         * Ils trompent les gens, ils arnaquent les gens, ils promessent des choses qu'ils ne peuvent pas tenir,
         * Il utilise la ruse, ou bien les astuces et tricks manuels pour faire croire à des choses fictives ou grande, mais qui ne sont pas en réalité (prestidigitateurs)
         * Il y a une différence entre le sorcier/magicien et celui-ci, il n'est pas concerné par la peine de mort
@@ -154,6 +160,10 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
     > "Celui qui va voir un voyant/sorcier, et ne le crois pas, sa prière n'est pas acceptée penda nt 40 jours. Celui qui va le voir et le crois, il est alors devenu mécréant." -> car il prétend connaitre l'invisible (alors que c'est les djins qui lui disent)
     
 + Les ennemis de l'Islam
+    * Alliés du Chaytan, de Ibliss
+    * Ceux qui adorent le diable, travaillent pour lui, les satanistes, les franc-maçons, sociétés secrètes, les politiques, ... etc
+    * Ceux qui sont les ennemis des musulmans, au niveau local, national ou international
+    * 
 
 ### L'agent magique : le Djin
 + définition :  
