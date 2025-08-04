@@ -1,5 +1,13 @@
 # Introduction à la Roqya et aux maux occultes -- Ce que tout(e) musulman(e) doit connaître
 
+## Muslim Lions
+
+Présenter rapidement.
+
+Résoudre les soucis de la Oummah, ignorance, problèmes profond, solution globale, non pas temporelle ni partielle, souvant la voie du prophète saws.
+
+
+
 ## Muslim Lions Roqya
 Muslim Loins Roqya est un groupe de musulmans engagés dans la lutte active contre les alliés du Chaytan (diable). Son action est principalement orientée autour de l'action , l'information et la prévention autour des différents maux occultes présents dans la société. Ces maux sont de plus en plus répandus aujourd'hui, et les gens, plus particulièrement les musulmans, se retrouvent démunis ou désorientés face aux problèmes ou attaques qu'ils peuvent subir. Pouvant tomber dans le Chirk (association) ou entre les mains de charlatans qui peuvent les exploiter ou déteriorer leur situation, notre objectif est de leur donner en main toutes les solutions légiférées et suffisantes que l'Islam propose à ces problèmes.
 
@@ -19,6 +27,7 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 
 ### Pourquoi étudier ?
 + Pour ne pas tomber dans le chirk
+> "Celui qui va voir un voyant/sorcier, et ne le crois pas, sa prière n'est pas acceptée penda nt 40 jours. Celui qui va le voir et le crois, il est alors devenu mécréant." -> car il prétend connaitre l'invisible (alors que c'est les djins qui lui disent)
 + Pour se rapprocher d'Allah, et détruire les obstacles ou barrières aux adorations (personens touchées)
 + Pour sortir de l'ignorance, la peur (du chaytan), et les superstitions
 + Pour se protéger, soi même et les autres
@@ -67,21 +76,7 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 + Allah les a crée, nous éprouve avec, et possède toute la puissance pour les détruire
 ### Les preuves de leur existence dans la chariah
 
-> a
-
-> a
-
-> a
-
-> a
-
-> a
-
-> a
-
-> a
-
-> a
++ Seront abordées plus tard au moment venu de chaque élément
 
 + Celui qui rejette l'existence de ces maux occultes, et l'existence de la sorcellerie a commit un acte de mécréance, car cela va l'encontre des textes et de notre croyance
 
@@ -92,6 +87,11 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
     * Admet l'expérience et la découverte de nouvelles technique, qui évoluent, sans sortir du cadre islamique.
 + Récits de roqya / hadiths
     * Histoire du prophète saws
+    > Hadith dans le Sahih de Boukhari, rapporté par 'Aicha a.s Le prophète saws a été ensorcellé par un dénommé Labid/Loubayd Ib Al A'sam (d'un tribu juive alentour ) jusqu'à ce qu'il hallucinait qu'il faisait quelque chose alors qu'il ne le faisait pas. Une nuit alors qu'il était auprès de moi (Aicha), et il faisait des dou'a des dou'as, puis lui a dit "O Aicha, est-ce que tu as ressenti que j'ai été éprouvé dans ...XXX..." 
+    >Le prophète saws a dit "Deux hommes me sont venus alors qu'il dormait, (des anges), l'un était au niveau de sa tête, l'autre au niveau de ses pieds , l'un a dit à l'autre, "qu'à cet homme ?" , l'autre lui répondit : "il est ensorcelé", "qui lui a fait cela ?" "labi ibn al a'sam", "dans quelle chose?" "dans un peigne, et le ... d'un tronc/racine de palmier", "et  où est-il ?" "dans le puit de dharwan (Médine)",
+    >ALors le prophète saws est venu à ce puit, et à dit "O aicha, l'eau (du puit) comme si elle était de couleur du henné, et que les fruits de ces palmiers sont des têtes de diable", 
+    >Un autre hadith dit qu'un juif rentrait auprès du prophète saws, il lui faisait confiance / il le gardait en sécurité, alors il lui a fait des noeufs et l'a jeté dans le puit d'un homme de ansar, (sorcellerie de mort mais qui a été allégé juste à hallucinations), et le prophète saws s'est plaint de cela (quelques jours, ou 6 mois selon les versions) puis deux hommes sont venus, l'un a dit à l'autre il lui a fait des noeuds et l'a jeté dans tel puit, si vous envoyer un homme regarder l'eau vous la verrez jaunie, et Djibril est venu et lui a révélé les deux dernière sourates protectrices,  
+    >Un homme a été envoyé pour chercher les noeuds ,et lui a demandé d'ouvrir les noeuds et de reciter un versets, à chaque fois qu'il ouvrait un noeud, le prophète saws y trouvait un allègement.
     * Récit du compagnon qui faisait roqya avec la fatiha du scorpion
     * Récits de compagnons qui faisaient roqya au kafirs
     * Paroles de grand savats (ibn taymiyah notamment)
@@ -176,6 +176,20 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 
 ## Section 6 : La sorcellerie
 + Définition : Accord entre un sorcier et un chaytan de faire un certain nombre d'actes interdits ou d'association en échage d'une aide ou d'une obéissance de sa part
++ autre Définition choisie de la sorcellerie : 
+ecritures (dessins, gravée, ...), et récitation (formules magiques, incantations, ...), et actions (fumée, noeuds, souffler, ...) et rituels (sacrifices, animaux spécifiques, souillure du coran, ...), pour se rapprocher des diables (sorcellerie c'est adoration des chayatins), pour réaliser une mauvaise action/effet bien précise et demandée
++ Preuve de son existance dans le Coran
+> Et ils suivirent ce que les diables racontent contre le règne de Salomon. Alors que Salomon n’a jamais été mécréant mais bien les diables: ils enseignent aux gens la magie ainsi que ce qui est descendu aux deux anges Hârout et Mârout, à Babylone; mais ceux-ci n’enseignaient rien à personne, qu’ils n’aient dit d’abord: “Nous ne sommes rien qu’une tentation (ceci est un test pour vous) : ne devenez pas mécréant en apprenant la magie” ils apprennent auprès d’eux ce qui sème la désunion entre l’homme et son épouse. Mais ils ne peuvent pas faire du mal avec la magie sans la permission d’Allah. Et les gens apprennent ce qui leur nuit et ne leur est pas profitable. Et ils savent, très certainement, que celui qui acquiert [ce pouvoir] n’aura aucune part dans l’au-delà. Certes, quelle détestable marchandise pour laquelle ils ont vendu leurs âmes! Si seulement ils savaient! [Sourate Al Baqarah verset 102]
+
+> Falamma alqaw qala moussa maa ji2toum bihi as-sihr, inna allah sayoubtilouh
+
+> A sihroun hatha wa la youflihou as sahiroun
+
+> Wa awhayna ila moussa an alqi 3asaka ...
+
+> Falama alqaw saharou a3youna an nassi wastarghabouhoum wa ja2ou bi sihrin 3athim
+
+> Iqtarabati as-sa3atou, wan chaqqa al qamar, wa in yaraw aayatan you3radhou wa yaqoulou sihroun moustamir (bon pour les sorcelleries continues ou qui se répètent)
 + Exemples d'actions que le (la) sorcièr(e) effectue pour se rapprocher du chaytan
     - Placer le Coran sous ses pieds et entre avec aux toilettes
     - Ecrire des versets du Coran avec de l'ordure / saletés / sang des règles
@@ -187,13 +201,28 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
     - Demander et se prosterner devant les planètes
     - Commettre des meurtres, ou des actes horribles
     - etc.
+    
 + Comment reconnaître un(e) sorcier(e)
-    * Paroles bizarres, incompréhensibles, ni arabe, ni français, ni coran, ni dou3a
-    * Demande le nom de la mère
+    * Paroles bizarres, incompréhensibles, ni arabe, ni français, ni coran, ni dou3a. Il prononce des mots, ou les ramone, dont on ne comprends pas le sens. Il peut parfois les placer entre des versets pour faire genre.
+    * Demande le nom de la mère (et le nom de la personne souvent)
     * Demande un vêtement, une chose propre au patient
     * Demande un rituel, un acte, un animal particulier
     * Visage sombre et obscure, plongé dans les ténèbres
     * Vit une vie de souffrance et non tranquille, ne peut dormir, sursaute dans le sommeil, voit ses enfants ou son compagnon touché et attaqué par les diables, etc.
+    * Il n'est pas connu pour la piété
+    * Il ne respecte pas les interdits, il est des plus malhonnêtes,
+    * Il faut une preuve et des témoins pour pouvoir accuser quelqu'un
+    * Celui qui écrit des feuilles ou talismans, dans lesquelles il n'y a pas que des versets, il y a des mots incompréhensibles, et bizarre, des chiffres, des figures ou carrés magiques etc , et lui ordonne de ne pas ouvrir sous aucun prétexte.
++ Différence entre sorcier et prestidigitateur :
+    * Ils trompent les gens, ils arnaquent les gens, ils promessent des choses qu'ils ne peuvent pas tenir,
+	* Il utilise la ruse, ou bien les astuces et tricks manuels pour faire croire à des choses fictives ou grande, mais qui ne sont pas en réalité (prestidigitateurs)
+    * Il y a une différence entre le sorcier/magicien et celui-ci, il n'est pas concerné par la peine de mort
+
+> "Celui qui va voir un voyant/sorcier, et ne le crois pas, sa prière n'est pas acceptée penda nt 40 jours. Celui qui va le voir et le crois, il est alors devenu mécréant." -> car il prétend connaitre l'invisible (alors que c'est les djins qui lui disent)
+
++ Il y a 2 livres dangereux qui parlent de sorcellerie, qui ont été pour la plupart brûlés ou interdits:
+	* Kitab Al 'Izzif, de 'Abdallah al Hadhradh
+	* Chams al Ma'arif, de Al Buni
 
 ### Les différents moyens d'être touché
 + Sorcellerie mangée/bue
@@ -258,10 +287,10 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 
 
 
-## Section 8 : Les pactes sataniques
+## Section 7 : Les pactes sataniques
 
 
-## Section 9 : Le déroulement d'une roqya
+## Section 8 : Le déroulement d'une roqya
 
 ### Le raqiy
 + Personnes qui va diagnostiquer, conduire la roqya et prescrire le traitement
@@ -271,13 +300,13 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 
 ### Le diagnostic 
 
-## Sujet 10 : Le traitement
+## Sujet 9 : Le traitement
 
 
-## Section 11 : Sujets divers
+## Section 10 : Sujets divers
 
 
-## Section 12 : Allah est la clé de toute chose
+## Section 11 : Allah est la clé de toute chose
 
 
 
