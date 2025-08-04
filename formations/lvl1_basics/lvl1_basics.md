@@ -25,6 +25,12 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
 
 ## Section 1 : Introduction et motivations
 
+
+### La roqya c'est quoi ? 
++ la Roqya, définition, lignuististiquement réciter, rappeler,s'éleveer, monter (en hauteur),
+on appelle roqya car celle élève celui qui la récite, et élève et enlève la maladie de celui qui l'a possède
++ une autre définition: c'est la récitation de mots ou phrase du coran ou dou'a particulières, avec des actions ou geste particuliers, de par le raqiy ou le malade, avec intention de guérison, par laquelle des maladies, maux, ou causes malfaisantes partent par la permission d'Allah, 
++ La roqya s'applique donc pour les maux spirituels (rouhiya), mais aussi physiques, comme les maladies physiques etc, mais aussi pour les maladies du coeur (orgueil, ... )
 ### Pourquoi étudier ?
 + Pour ne pas tomber dans le chirk
 > "Celui qui va voir un voyant/sorcier, et ne le crois pas, sa prière n'est pas acceptée penda nt 40 jours. Celui qui va le voir et le crois, il est alors devenu mécréant." -> car il prétend connaitre l'invisible (alors que c'est les djins qui lui disent)
@@ -71,7 +77,8 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
     * La sorcellerie (Sihr)
     * La possession (Mass)
     * Les pactes sataniques ('Ouhoud)
-    * Être cible des djins (el mess, ...) pour diverses raisons
+    * Le touché diabolique (El mess)
+    * Être cible des djins pour diverses raisons
     * Et ceux dont nous n'avons pas connaissance
 + Allah les a crée, nous éprouve avec, et possède toute la puissance pour les détruire
 ### Les preuves de leur existence dans la chariah
@@ -92,11 +99,21 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
     >ALors le prophète saws est venu à ce puit, et à dit "O aicha, l'eau (du puit) comme si elle était de couleur du henné, et que les fruits de ces palmiers sont des têtes de diable", 
     >Un autre hadith dit qu'un juif rentrait auprès du prophète saws, il lui faisait confiance / il le gardait en sécurité, alors il lui a fait des noeufs et l'a jeté dans le puit d'un homme de ansar, (sorcellerie de mort mais qui a été allégé juste à hallucinations), et le prophète saws s'est plaint de cela (quelques jours, ou 6 mois selon les versions) puis deux hommes sont venus, l'un a dit à l'autre il lui a fait des noeuds et l'a jeté dans tel puit, si vous envoyer un homme regarder l'eau vous la verrez jaunie, et Djibril est venu et lui a révélé les deux dernière sourates protectrices,  
     >Un homme a été envoyé pour chercher les noeuds ,et lui a demandé d'ouvrir les noeuds et de reciter un versets, à chaque fois qu'il ouvrait un noeud, le prophète saws y trouvait un allègement.
+
+    Plusieurs personnes pensent que s'ils lisent du coran, ou qu'ils sont pieux, ils ne peuvent pas être touchés. Même le prophète saws a été touché par cela, malgré les protections, car elles peuvent faiblir par nos péchés ou notre inattention.
+    
+    > Selon 'Aicha , le prophète saws lorsqu'il se plaignait récitait sur lui mêmes les 2 sourate protectrices (al mou'awhidhat) puis il soufflait. Quand la douleur s'est amplifiée, je lui récitait dessus, et essuyait avec ses mains, en recherchant leur barakah [URA]
+
     * Récit du compagnon qui faisait roqya avec la fatiha du scorpion
+
+    > Selon Abou Sa'id al Khoudhriy, il y avait des compagnons du prophète saws qui étaient en voyage. Ils sont passés devant des arabes, ils leur ont demandé de les invités, mais ils ont refusé. Ils leur ont demandé "est-ce que vous avez parmi vous un raqiy ?" (la roqya était connue avant l'islam), "car le chef du secteur est malade/touché/piqué/empoisonné". Un des hommes des compagnons a dit : "Oui il y en a", alors il est venu à lui, et lui a fait roqya avec Sourate Al Fatiha, et l'homme a été guéri. En guise de récompense, ils lui ont donné une partie de leur troupeau, mais l'homme n'a pas voulu accepter, pas avant de mentionner cela au prophète saws. Il est alros allé voir le prophète saws, et lui a raconté cela, et lui a dit "Ô messager d'Allah, wallahi je n'ai recité qu'avec l'ouverture du coran", le prophète saws sourris et dit : "et qui t'a informé qu'elle était une roqya ? prenez les, et donnez moi également une partie",  [URA]
+    
+    Cela vient indiquer également qu'il est autorisé au raqiy d'accepter la récompense donnée par le malade pour la roqya; 
+
     * Récits de compagnons qui faisaient roqya au kafirs
     * Paroles de grand savats (ibn taymiyah notamment)
     * Récit du prophète saws qui leur demande de montrer ce avec quoi ils faisaient roqya --> tant que ça ne comporte pas de chirk (transition)
-> Selon 'Awf Ibn Malik, Nous pratiquions la roqa avant l'islam. Quel est ton avis sur cela ?, Il dit (saws) : Amener à moi vos Roqya, il n'y a pas de mal aux riqya tant qu'elles ne contiennent pas de chirk. 
+    > Selon 'Awf Ibn Malik, Nous pratiquions la roqa avant l'islam. Quel est ton avis sur cela ?, Il dit (saws) : Amener à moi vos Roqya, il n'y a pas de mal aux riqya tant qu'elles ne contiennent pas de chirk. 
 + Tout est autorisé sauf le chirk
     * On teste, on regarde ce qui fonctionne, expérimentale
     * Le coran, les dou'as, les invocations, sous différentes formes
@@ -118,12 +135,29 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
     * Débaler sa vie auprès des gens, sur les réseaux sociaux, photos, vidéos etc.
 + Les jaloux et jalouses
 + Les sorciers et sorcières
+    - Comment reconnaître un(e) sorcier(e)
+        * Paroles bizarres, incompréhensibles, ni arabe, ni français, ni coran, ni dou3a. Il prononce des mots, ou les ramone, dont on ne comprends pas le sens. Il peut parfois les placer entre des versets pour faire genre.
+        * Demande le nom de la mère (et le nom de la personne souvent)
+        * Demande un vêtement, une chose propre au patient
+        * Demande un rituel, un acte, un animal particulier
+        * Visage sombre et obscure, plongé dans les ténèbres
+        * Vit une vie de souffrance et non tranquille, ne peut dormir, sursaute dans le sommeil, voit ses enfants ou son compagnon touché et attaqué par les diables, etc.
+        * Il n'est pas connu pour la piété
+        * Il ne respecte pas les interdits, il est des plus malhonnêtes,
+        * Il faut une preuve et des témoins pour pouvoir accuser quelqu'un
+        * Celui qui écrit des feuilles ou talismans, dans lesquelles il n'y a pas que des versets, il y a des mots incompréhensibles, et bizarre, des chiffres, des figures ou carrés magiques etc , et lui ordonne de ne pas ouvrir sous aucun prétexte.
+    - Différence entre sorcier et prestidigitateur :
+        * Ils trompent les gens, ils arnaquent les gens, ils promessent des choses qu'ils ne peuvent pas tenir,
+        * Il utilise la ruse, ou bien les astuces et tricks manuels pour faire croire à des choses fictives ou grande, mais qui ne sont pas en réalité (prestidigitateurs)
+        * Il y a une différence entre le sorcier/magicien et celui-ci, il n'est pas concerné par la peine de mort
+
+    > "Celui qui va voir un voyant/sorcier, et ne le crois pas, sa prière n'est pas acceptée penda nt 40 jours. Celui qui va le voir et le crois, il est alors devenu mécréant." -> car il prétend connaitre l'invisible (alors que c'est les djins qui lui disent)
+    
 + Les ennemis de l'Islam
 
 ### L'agent magique : le Djin
-+ 
-+ 
-+ 
++ définition :  
++
 + Types de djins : 
     * Le djinny: est juste là, djin de base
     * Le Djin 'aamir : il vient vivre parmis les gens, et profite de leur toit
@@ -137,7 +171,7 @@ Cette formation constitue une introduction à ces problèmes et méthodes, et re
     * Djins travaillant directement avec le sorcier / général
     * Djins employé d'un autre djins / soumis par un autre djin
     * Le Djin 'achiq : Djins amoureux
-+ Retour au mess: c'est quand un djin vient faire du mal à un être humain, sans qu'il y ait un intermédiaire humain (sans 3ayn, sans sorcellerie)
++ Retour au Mess: c'est quand un djin vient faire du mal à un être humain, sans qu'il y ait un intermédiaire humain (sans 3ayn, sans sorcellerie)
 + Raisons pour lesquelles le djin peut s'en prendre à nous:
     * dd
 
@@ -202,23 +236,7 @@ ecritures (dessins, gravée, ...), et récitation (formules magiques, incantatio
     - Commettre des meurtres, ou des actes horribles
     - etc.
     
-+ Comment reconnaître un(e) sorcier(e)
-    * Paroles bizarres, incompréhensibles, ni arabe, ni français, ni coran, ni dou3a. Il prononce des mots, ou les ramone, dont on ne comprends pas le sens. Il peut parfois les placer entre des versets pour faire genre.
-    * Demande le nom de la mère (et le nom de la personne souvent)
-    * Demande un vêtement, une chose propre au patient
-    * Demande un rituel, un acte, un animal particulier
-    * Visage sombre et obscure, plongé dans les ténèbres
-    * Vit une vie de souffrance et non tranquille, ne peut dormir, sursaute dans le sommeil, voit ses enfants ou son compagnon touché et attaqué par les diables, etc.
-    * Il n'est pas connu pour la piété
-    * Il ne respecte pas les interdits, il est des plus malhonnêtes,
-    * Il faut une preuve et des témoins pour pouvoir accuser quelqu'un
-    * Celui qui écrit des feuilles ou talismans, dans lesquelles il n'y a pas que des versets, il y a des mots incompréhensibles, et bizarre, des chiffres, des figures ou carrés magiques etc , et lui ordonne de ne pas ouvrir sous aucun prétexte.
-+ Différence entre sorcier et prestidigitateur :
-    * Ils trompent les gens, ils arnaquent les gens, ils promessent des choses qu'ils ne peuvent pas tenir,
-	* Il utilise la ruse, ou bien les astuces et tricks manuels pour faire croire à des choses fictives ou grande, mais qui ne sont pas en réalité (prestidigitateurs)
-    * Il y a une différence entre le sorcier/magicien et celui-ci, il n'est pas concerné par la peine de mort
 
-> "Celui qui va voir un voyant/sorcier, et ne le crois pas, sa prière n'est pas acceptée penda nt 40 jours. Celui qui va le voir et le crois, il est alors devenu mécréant." -> car il prétend connaitre l'invisible (alors que c'est les djins qui lui disent)
 
 + Il y a 2 livres dangereux qui parlent de sorcellerie, qui ont été pour la plupart brûlés ou interdits:
 	* Kitab Al 'Izzif, de 'Abdallah al Hadhradh
@@ -328,15 +346,11 @@ ecritures (dessins, gravée, ...), et récitation (formules magiques, incantatio
 --------------------------------------------
 ##  Cours youtube video notes - Abu Zayd Al Jazairiy
 
-- la Roqya, définition, lignuististiquement réciter, rappeler,s'éleveer, monter (en hauteur),
-on appelle roqya car celle élève celui qui la récite, et élève et enlève la maladie de celui qui l'a possède
-- une autre définition: c'est la récitation de mots ou phrase du coran ou dou'a particulières, avec des actions ou geste particuliers, de par le raqiy ou le malade, avec intention de guérison, par laquelle des maladies, maux, ou causes malfaisantes partent par la permission d'Allah, 
-- La roqya s'applique donc pour les maux spirituels (rouhiya), mais aussi physiques, comme les maladies physiques etc, mais aussi pour les maladies du coeur (orgueil, ... )
 
-> Selon Abou Sa'id al Khoudhriy, il y avait des compagnons du prophète saws qui étaient en voyage. Ils sont passés devant des arabes, ils leur ont demandé de les invités, mais ils ont refusé. Ils leur ont demandé "est-ce que vous avez parmi vous un raqiy ?" (la roqya était connue avant l'islam), "car le chef du secteur est malade/touché/piqué/empoisonné". Un des hommes des compagnons a dit : "Oui il y en a", alors il est venu à lui, et lui a fait roqya avec Sourate Al Fatiha, et l'homme a été guéri. En guise de récompense, ils lui ont donné une partie de leur troupeau, mais l'homme n'a pas voulu accepter, pas avant de mentionner cela au prophète saws. Il est alros allé voir le prophète saws, et lui a raconté cela, et lui a dit "Ô messager d'Allah, wallahi je n'ai recité qu'avec l'ouverture du coran", le prophète saws sourris et dit : "et qui t'a informé qu'elle était une roqya ? prenez les, et donnez moi également une partie",  [URA]
-Cela vient indiquer également qu'il est autorisé au raqiy d'accepter la récompense donnée par le malade pour la roqya; 
 
-> Selon 'Aicha , le prophète saws lorsqu'il se plaignait récitait sur lui mêmes les 2 sourate protectrices (al mou'awhidhat) puis il soufflait. Quand la douleur s'est amplifiée, je lui récitait dessus, et essuyait avec ses mains, en recherchant leur barakah [URA]
+
+
+
 
 
 
