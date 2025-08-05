@@ -167,6 +167,11 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
 
 ### L'agent magique : le Djin
 + Les Djins sont des créatures créées par Allah (plusieurs versets en témoignent), créés de feu
++ Les djinns vivent autour de nous. Ils sont très nombreux dans les endroits désaffectés et inhabités par l’homme. Les endroits sales et humides sont particulièrement habités car les djinns trouvent leur nourriture dans les restes et les excréments.
++ Ils sont aussi dans les maisons, surtout vieilles et mal entretenues, mais aussi dans les maisons neuves et bien entretenues.
+
+
+
 + Plusieurs raisons peuvent exister pour lesquelles un djinn intervient sur un humain, mais il doit exister une raison
 + En général il y a 3 possibilités
 	* le djin peut être à l'intérieur du corps, il arrive qu'il prenne possession de la personne et qu'il parle à sa place. Cela peut être permenent, périodique, ou occassionnel.
@@ -180,7 +185,35 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
 	* Il intervient dans les maladies, pour perturber le corps ou les douleurs physiques
 	* Un djin est souvent attaché à la sorcellerie, forcé de faire le travail. Il peut être bon ou mauvais. Certains djins travaillent de plein gré, et organisent même la successions des sorciers.
 
-    
++ Il peut venir par vengence
+    * Si on l'a tué, si on a tué un de ses proches, Il arrive alors qu’ils se vengent ou qu’ils vengent un de leurs proches en frappant la personne qui leur a involontairement fait du mal.
+    * Si on fait un geste brusque sas dire bismillah, si on verse de l'eau chaude sans dire bismillah etc, 
+    * La personne peut alors être à moitié paralysée ou engourdie, elle peut être angoissée ou déprimée, elle peut avoir des envies suicidaires ou des pensées harcelantes ou autres manifestations. Cela s’accompagne souvent de cauchemars : la personne est frappée ou poursuivie par des êtres effrayants.
+    * Ils ont trois passions fortes : l’orgueil, l’amour et la vengeance. Un djinn peut se venger sur une personne toute sa vie. Il ne va plus faire que ça, et ne fait plus rien d’autre dans sa vie.
+
++ Il peut venir par amour
+    * Si on se déshabille sans dire bismillah, les djins nous voient nous et peuvent être attirés ou tomber amoureux de nous, notamment dans les toilettes
+    * Djin masculin peuvent tomber amoureux des femmes, et vice versa. l'homoxsexualité chez les djins est très rare. 
+    * Ce que les djinns aiment chez les humains, c’est les personnes qui n’ont dans leur coeur aucune méchanceté pour personne --> ils ne savent pas detester le mal et les injustes --> La mentalité d’accepter de subir les autres prédispose la personne à subir les djinns ou la sorcellerie.
+    * Cela peut entrainer des rêves erotiques, des problèmes dans le couple, des rêves où le djin vient sous l'apprence du coinjoint.e
+
++ Il peut venir en recherche d'hébergement
+    * Les djinns ont une vie très simple par rapport à la nôtre. Ils ne transforment pas la nature et vient dans l’environnement qu’ils trouvent. Ils cherchent des habitations appropriées et ne peuvent en aménager. Ils cherchent de la nourriture : restes et excréments, et ne peuvent pas en préparer ou en emmagasiner. A part ces deux soucis, ils n’ont plus grand-chose à faire.
+    * Quand un djinn est dans un corps humain, il est nourri et logé, et en général n’en demande pas plus pour être bien.
+    * Mais il leur faut une brèche pour entrer : c’est la présence de sorcellerie, mauvais oeil ou djinn chez la personne.
+    * Plusieurs djins peuvent habiter en même temps chez une personne, et cela peut créer des conflits entre eux
+    * Souvent il ne se manifeste pas, mais on peut ressentir une lourdeur,,
+    * Il se peut qu'il y ait interaction, que des pensées , gouts et dégouts , envies soient partagés, et l'un va influencer l'autre. 
+    * Le Djin peut habiter chez une personne aussi pour égarer quelqu'un qui fait des avancées dans la religion, ou qui est une menace pour l'ennemi. Il est détaché spécifiquement pour cela, et va le pousser à abandonner, le freiner, le mener au péchés etc
+
++ Il peut être un habitant déjà dans la maison
+    * Les vieilles maisons et les maisons abandonnées sont presque toujours habitées, et les maisons neuves le sont souvent
+    * ceux qui se font le plus remarquer sont les mauvais qui détestent les pratiquants. Quand ceux-là sont dans la maison, on ressent une ambiance lourde, et les personnes touchées par de la sorcellerie, un mauvais oeil ou un djinn, ainsi que les petits enfants, le ressentiront plus, et verront même parfois des djinns sous diverses formes
+    * Les djinns pourront aussi leur nuire en perturbant leur sommeil et en leur faisant faire des cauchemars
+    * A force de vivre ensemble tôt ou tard les habitants de la maison frapperont accidentellement des djinns et subiront leur vengeance ou se déshabilleront sans dire « Bismillah » et des djinns seront amoureux d’eux. Si en plus certains membres de la famille ont subi la sorcellerie, ils subiront encore plus puisque les djinns pourront entrer en eux sans cause.
+
+* Un djin peut aussi changer de statut et de raison de rester, il est venu par sorcellerie, puis a trouvé logement, puis est devenu amoureux par exemple 
+
 + Types de djins : 
     * Le djinny: est juste là, djin de base
     * Le Djin 'aamir : il vient vivre parmis les gens, et profite de leur toit
@@ -195,8 +228,6 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
     * Djins employé d'un autre djins / soumis par un autre djin
     * Le Djin 'achiq : Djins amoureux
 + Retour au Mess: c'est quand un djin vient faire du mal à un être humain, sans qu'il y ait un intermédiaire humain (sans 3ayn, sans sorcellerie)
-+ Raisons pour lesquelles le djin peut s'en prendre à nous:
-    * dd
 
 ## Section 3 : Précautions, protections et défense
 + Les invocations de protections
