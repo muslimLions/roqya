@@ -208,9 +208,26 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
 
 ## Section 4 : Le mauvais oeil
 + Qu'est-ce que le mauvais oeil ?
+    * C’est un effet spirituel qui ne peut être expliqué pas les lois physiques.
+    * Certaines personnes ont ce pouvoir du mauvais oeil ; dès qu’elle regarde une chose avec admiration, elle se détruit.
+    * Heureusement ces personnes sont rares. Le plus souvent, ce regard admiratif est accompagné de jalousie et de méchanceté.
+    * Le mauvais oeil peut agir sur une personne, une famille, un véhicule, un magasin, une maison ou quoi que ce soit, même la moindre chose.
+    * Une autre variante du mauvais oeil est celle faite par le groupe : les gens se mettent à parler d’une personne, de sa réussite, de sa beauté, de sa force ou de quoi que ce soit, et l’énergie de la personne est cassée, elle devient lourde et fainéante. Il en est de même pour un magasin ou quoi que ce soit.
+    * Le mauvais oeil peut aussi être fait par les djinns.
+    * La plus légère de trois affectations et en général la personne ne s’en rend pas compte et ne cherche pas à se soigner
+
 + Quels sont les symptômes ?
+    * Elle sent de la lourdeur et de la fatigue ; un manque d’énergie
+    * Par contre, les bébés peuvent être très affectés par le mauvais oeil : fièvre, perte d’appétit et de sommeil. Aussi, les djinns de la maison y trouvent une brèche pour les effrayer
+    * C’est l’explication la plus fréquente des frayeurs nocturnes des petits enfants : des djinns habitant dans la maison profitent de la brèche causée par le mauvais oeil pour les effrayer
+    * Il faut alors soigner le petit contre le mauvais oeil et la maison contre les djinns
+    * Il est fréquent que les gens croient avoir le mauvais oeil car ils ont de la « malchance » alors que c’est de la sorcellerie.
 + Comment annuler le mauvais oeil ?
 + Comment s'en protéger ?
+
+
+
+
 
 ## Section 5 : La jalousie
 + Qu'est-ce que la jalousie ?
