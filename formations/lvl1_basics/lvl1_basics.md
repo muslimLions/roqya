@@ -166,8 +166,21 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
     * 
 
 ### L'agent magique : le Djin
-+ définition :  
-+
++ Les Djins sont des créatures créées par Allah (plusieurs versets en témoignent), créés de feu
++ Plusieurs raisons peuvent exister pour lesquelles un djinn intervient sur un humain, mais il doit exister une raison
++ En général il y a 3 possibilités
+	* le djin peut être à l'intérieur du corps, il arrive qu'il prenne possession de la personne et qu'il parle à sa place. Cela peut être permenent, périodique, ou occassionnel.
+	* il peut être à l'extérieur,
+	* il peut entrer et sortir (par des brèches)
+
++ Il peut venir par raison de sorcellerie, qui est la raison la plus fréquente. Il vient accompagner la sorcellerie (pas obligé), pour accentuer l'effet, la protéger, etc
+	* Exemple pour séparer un couple il va venir travailler la sorcellerie de séparation
+	* Pour les blocages il va venir bloquer ou influencer les gens
+	* Il intervient en perturbation mental du malade
+	* Il intervient dans les maladies, pour perturber le corps ou les douleurs physiques
+	* Un djin est souvent attaché à la sorcellerie, forcé de faire le travail. Il peut être bon ou mauvais. Certains djins travaillent de plein gré, et organisent même la successions des sorciers.
+
+    
 + Types de djins : 
     * Le djinny: est juste là, djin de base
     * Le Djin 'aamir : il vient vivre parmis les gens, et profite de leur toit
@@ -224,8 +237,6 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
     * Il est fréquent que les gens croient avoir le mauvais oeil car ils ont de la « malchance » alors que c’est de la sorcellerie.
 + Comment annuler le mauvais oeil ?
 + Comment s'en protéger ?
-
-
 
 
 
