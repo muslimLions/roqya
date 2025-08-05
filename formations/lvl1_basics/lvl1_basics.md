@@ -230,6 +230,8 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
 + Retour au Mess: c'est quand un djin vient faire du mal à un être humain, sans qu'il y ait un intermédiaire humain (sans 3ayn, sans sorcellerie)
 
 ## Section 3 : Précautions, protections et défense
++ prendre ses précautions vis à vis des gens
+    ...
 + Les invocations de protections
 + La protection de la maison
     * Lire Sourate al baqarah
