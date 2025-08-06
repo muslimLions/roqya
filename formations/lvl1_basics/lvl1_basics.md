@@ -233,13 +233,17 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
 + prendre ses précautions vis à vis des gens
     ...
 + Les invocations de protections
-+ La protection de la maison
+
+### La protection de la maison
+
+
++ Comment protéger la maison ?
     * Lire Sourate al baqarah
     > Citer le hadith
     * Propreté, pureté, bonne odeurs (parfum, encens (coranisés), musc (noir, blanc), ...)
     * Couvrir la nourriture
     * Asperger de l'eau coranique dans la maison (sur les murs, plafonds, ouvertures de portes, les coins, ...). Dans les toilettes on peut asperger de l'eau salée, ou avec du sidr par exemple. 
-    * Certains produits font fuire les djins (par experience) : vinaigre, sidr (jujubier), ...
+    * Certains produits font fuire les djins (par experience) : vinaigre, sidr (jujubier), sel ...
     * Réciter du Coran à haute voix, faire le adhan, ne pas désobir à Allah, faire les prières surrerogatoires, que ce soit un lieu de piété pour que les anges le fréquentent
     * Faire les invocations en entrant et sortant de la maison
     > Bismillahi kharadjna, bismillahi waladjna, wa 'ala rabbina tawakkalna
@@ -261,6 +265,23 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
     * Une autre variante du mauvais oeil est celle faite par le groupe : les gens se mettent à parler d’une personne, de sa réussite, de sa beauté, de sa force ou de quoi que ce soit, et l’énergie de la personne est cassée, elle devient lourde et fainéante. Il en est de même pour un magasin ou quoi que ce soit.
     * Le mauvais oeil peut aussi être fait par les djinns.
     * La plus légère de trois affectations et en général la personne ne s’en rend pas compte et ne cherche pas à se soigner
+    * Réfère à l'oeil, l'effet de l'oeil
+    - Définition : la 'ayn c'est un regard avec envie, qui envoie à la chose regardé une energie négative. C'est une flèche qui sort de l'oeil de celui qui regarde avec insistance et passion, lancée en direction de la cible, qui lorsqu'est touchée par la flèche se retrouve blessée.
+    - Peut venir de la part d'un djin ou d'un humain
+- Le mauvais oeil est plus dangereux que la jalousie, certaines fois plus dangereux que la sorcellerie
+> Le prophète saws a dit "Certes le 'ayn est une réalité"
+
++ Le mauvais oeil peut causer de nombreux dégâts dont la mort
+> Le prophète saws a dit "Le 'ayn peut faire rentrer quelqu'un a la tombe" (peut causer la mort)
+
++ Le mauvais oeil pour toucher toute chose : un être humain, un objet, un animal, un travail, l'argent, l'électricité,  etc
++ On peut être touché très facilement si on est pas protégé, n'importe où nimporte quand
+
++ Il faut toujours se protégér, surtout quand on peut êtr exposé au public à l'extérieur, dans les évènements etc
++ Il faut aussi toujours prononcer le nom d'Allah pour éviter l'effet du 'ayn (masha allah quand c'est à nous, allah i barek pour les autres)
++ Certaines personnes ont un 'ayn plus puissants que les autres, 
+
+
 
 + Quels sont les symptômes ?
     * Elle sent de la lourdeur et de la fatigue ; un manque d’énergie
@@ -268,16 +289,72 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
     * C’est l’explication la plus fréquente des frayeurs nocturnes des petits enfants : des djinns habitant dans la maison profitent de la brèche causée par le mauvais oeil pour les effrayer
     * Il faut alors soigner le petit contre le mauvais oeil et la maison contre les djinns
     * Il est fréquent que les gens croient avoir le mauvais oeil car ils ont de la « malchance » alors que c’est de la sorcellerie.
+    * Mal de tête, migraines
+	* Lourdeurs du coeur, de la poitrine
+	* Fatigue accrue, grande paresse
+	* Volonté de pleurer, sans raison
+	* Rêves où on voit des gens nous regarder, ou des gros yeux, ou des fois éveillé, ou bien on se sent regardé, observé
+	* Quelque chose qui l'empêche de faire des adorations, qui a changé par rapport à avant
+	* Que son esprit parte très loin, il perte la concentration etc
+	* Ressentir une chaleur interne dans son corps
+	* Bailler lors de la lecture du Coran ou de la prière, grand baillement
+	* Des fourmis dans les jambes ou dans les mains (peut aussi être sorcellerie)
+	* Beaucoup oublier
+	* Perdre beaucoup de ni'ma qu'on avait, l'un après les autres
+	* 
+
 + Comment annuler le mauvais oeil ?
+> wa idhistasqah mousshah li qawmihi faqoulna idh-rib bi 3asaaka al hajar, fan fajarat minhou athnata 'acharata 'ayna
+
+> 'aynan yachrabou biha 3ibadoullahi youfajirounaha tafjirah
+
+> fanthour ila ta3amika wa charabika lam yatsanah
+
+> farji' al basara hal tara min foutour, thouma ar-ji' al basara karratayn
+
+> law anzalna hathal qour'ana 'ala jabalin 
+
+>  wa in yakaadoullathina kafarou la youzliqounaka bi absarihim
+
+> 
+
 + Comment s'en protéger ?
 
 
 
 ## Section 5 : La jalousie
-+ Qu'est-ce que la jalousie ?
-+ Quels sont les symptômes ?
-+ Comment annuler la jalousie ?
-+ Comment s'en protéger ?
+
+- Définition : C'est lorsqu'une personne voit ue ni'ma chez autrui, et qu'elle veuille que cette ni'ma s'envole et parte et se détruise, et qu'éventuellement elle vienne à lui à la place
+    - Autre définition : c'est lorsqu'une personne déteste ce qu'Allah a fait descendre chez quelqu'un de bien et de ni'ma, qu'il veille sa destruction ou pas
+    - La jalousie est une cause de mal d'une société, et peut être destructice de vies et de familles
+    - Peut venir de la part d'un djin ou d'un humain
+    - À chaque fois qu'on retrouve un djin ou chaytan qui est puissant, la plupart du temps il est rentré par le biais de la jalousie
+    - Quand on a un cas combiné de 'ayn, hassad et sorcellerie, le chef des djins sera alors rentré par le biais du hassad
+    - Le danger du hassad
+    - Le jaloux souvent est uen personne dont sa jalousie ne va faire qu'acroître, il ne se reposera pas, il sera toujours tiraillé par les bienfaits que les autres ont, et aura une place de bas étage auprès des gens
+    + la jalousie prend souvent racine de l'orgeuil (je suis meilleur que lui, je mérite mieux), l'envie, l'envie d'être au dessus, l'attachement à la dounia, des maladies du coeur, de la peur de manquer sa vie
+    + 
+
+    + Le chaytan accompagne celui qui jalouse, et reste avec, et la chaytan l'aide et est un vecteur de propogation du mal pour la hassad. Celui qui jalouse, les savants disent il est comme un diable, il va attirer les diables. Il est souvent qu'un djin vienne travailler la jalousie, et ça peut donner les mêmes effets que la sorcellerie etc
+    + Les djins aussi peuvent être très jaloux des humains, de part la force, l'intelligence et la puissance qu'Allah leur a donné par rapport aux djins, et le hassad peut être très puissant
+
+
++ Les symptômes :
+	* Douleurs dans le ventre
+
++ Les versets du hassad : 
+
+> Am yahsoudouna an-nass 'ala ma ataahoumoullahou min fadhlih, wa laqad atayna ....
+
+> Wa min charri haasadin itha hassad
+
+> ... bel tahsoudounana , bel kaana allahou 3ala ...
+
+> wadda kathiroun min ahl al kitab law yaroudounakoum .... hasadan min 'indi anfousihim
+
+> law anzalna hathal qour'ana 'ala jabalin 
+
+> versets des 'ouqad (noeuds)
 
 ## Section 6 : La sorcellerie
 + Définition : Accord entre un sorcier et un chaytan de faire un certain nombre d'actes interdits ou d'association en échage d'une aide ou d'une obéissance de sa part
