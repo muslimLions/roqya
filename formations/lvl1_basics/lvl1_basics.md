@@ -256,6 +256,22 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
 + Les failles et faiblesses qui profitent à l'ennemi
 + Passer à l'attaque
 
+
+## Section 3bis :  les symptomes généraux (commun aux trois)
+* ce qui se répète dans les rêves montre qu'il  ya quelque chose d'un mal occulte (chute de hauteur par exemple, les animaux, des montres qui l'attaquent etc)
+* la chute de cheveux, en grande quantité
+* douleur dans le cou, les épaules, omoplates, ...
+* douleur dans le bas du dos
+* des bleus / violet / taches jaunes, ou des griffures, 
+* des paralysies du sommeil
+* des migraines
+* insomnies
+* les nerfs, énervement, tension, rougeur des yeux
+* l'oubli beaucoup
+* pleurer sans raison, grandes tristesses, grandes peur, dépression, aimer être isolé, aimer l'obscurité
+
+
+
 ## Section 4 : Le mauvais oeil
 + Qu'est-ce que le mauvais oeil ?
     * C’est un effet spirituel qui ne peut être expliqué pas les lois physiques.
