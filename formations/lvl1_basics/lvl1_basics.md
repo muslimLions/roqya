@@ -340,19 +340,17 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
 
 ## Section 5 : La jalousie
 
-- Définition : C'est lorsqu'une personne voit ue ni'ma chez autrui, et qu'elle veuille que cette ni'ma s'envole et parte et se détruise, et qu'éventuellement elle vienne à lui à la place
-    - Autre définition : c'est lorsqu'une personne déteste ce qu'Allah a fait descendre chez quelqu'un de bien et de ni'ma, qu'il veille sa destruction ou pas
-    - La jalousie est une cause de mal d'une société, et peut être destructice de vies et de familles
-    - Peut venir de la part d'un djin ou d'un humain
-    - À chaque fois qu'on retrouve un djin ou chaytan qui est puissant, la plupart du temps il est rentré par le biais de la jalousie
-    - Quand on a un cas combiné de 'ayn, hassad et sorcellerie, le chef des djins sera alors rentré par le biais du hassad
-    - Le danger du hassad
-    - Le jaloux souvent est uen personne dont sa jalousie ne va faire qu'acroître, il ne se reposera pas, il sera toujours tiraillé par les bienfaits que les autres ont, et aura une place de bas étage auprès des gens
-    + la jalousie prend souvent racine de l'orgeuil (je suis meilleur que lui, je mérite mieux), l'envie, l'envie d'être au dessus, l'attachement à la dounia, des maladies du coeur, de la peur de manquer sa vie
-    + 
-
-    + Le chaytan accompagne celui qui jalouse, et reste avec, et la chaytan l'aide et est un vecteur de propogation du mal pour la hassad. Celui qui jalouse, les savants disent il est comme un diable, il va attirer les diables. Il est souvent qu'un djin vienne travailler la jalousie, et ça peut donner les mêmes effets que la sorcellerie etc
-    + Les djins aussi peuvent être très jaloux des humains, de part la force, l'intelligence et la puissance qu'Allah leur a donné par rapport aux djins, et le hassad peut être très puissant
++ Definition : C'est lorsqu'une personne voit ue ni'ma chez autrui, et qu'elle veuille que cette ni'ma s'envole et parte et se détruise, et qu'éventuellement elle vienne à lui à la place
++ Autre définition : c'est lorsqu'une personne déteste ce qu'Allah a fait descendre chez quelqu'un de bien et de ni'ma, qu'il veille sa destruction ou pas
++ La jalousie est une cause de mal d'une société, et peut être destructice de vies et de familles
++ Peut venir de la part d'un djin ou d'un humain
++ À chaque fois qu'on retrouve un djin ou chaytan qui est puissant, la plupart du temps il est rentré par le biais de la jalousie
++ Quand on a un cas combiné de 'ayn, hassad et sorcellerie, le chef des djins sera alors rentré par le biais du hassad
++ Le danger du hassad
+    * Le jaloux souvent est une personne dont sa jalousie ne va faire qu'acroître, il ne se reposera pas, il sera toujours tiraillé par les bienfaits que les autres ont, et aura une place de bas étage auprès des gens
+    * la jalousie prend souvent racine de l'orgeuil (je suis meilleur que lui, je mérite mieux), l'envie, l'envie d'être au dessus, l'attachement à la dounia, des maladies du coeur, de la peur de manquer sa vie
+    * Le chaytan accompagne celui qui jalouse, et reste avec, et la chaytan l'aide et est un vecteur de propogation du mal pour la hassad. Celui qui jalouse, les savants disent il est comme un diable, il va attirer les diables. Il est souvent qu'un djin vienne travailler la jalousie, et ça peut donner les mêmes effets que la sorcellerie etc
++ Les djins aussi peuvent être très jaloux des humains, de part la force, l'intelligence et la puissance qu'Allah leur a donné par rapport aux djins, et le hassad peut être très puissant
 
 
 + Les symptômes :
@@ -388,6 +386,7 @@ ecritures (dessins, gravée, ...), et récitation (formules magiques, incantatio
 > Falama alqaw saharou a3youna an nassi wastarghabouhoum wa ja2ou bi sihrin 3athim
 
 > Iqtarabati as-sa3atou, wan chaqqa al qamar, wa in yaraw aayatan you3radhou wa yaqoulou sihroun moustamir (bon pour les sorcelleries continues ou qui se répètent)
+
 + Exemples d'actions que le (la) sorcièr(e) effectue pour se rapprocher du chaytan
     - Placer le Coran sous ses pieds et entre avec aux toilettes
     - Ecrire des versets du Coran avec de l'ordure / saletés / sang des règles
@@ -400,31 +399,82 @@ ecritures (dessins, gravée, ...), et récitation (formules magiques, incantatio
     - Commettre des meurtres, ou des actes horribles
     - etc.
     
-
-
 + Il y a 2 livres dangereux qui parlent de sorcellerie, qui ont été pour la plupart brûlés ou interdits:
 	* Kitab Al 'Izzif, de 'Abdallah al Hadhradh
 	* Chams al Ma'arif, de Al Buni
 
 ### Les différents moyens d'être touché
-+ Sorcellerie mangée/bue
+
++ Il y a 2 types de sorcellerie, celle que l'homme fait et pose, et celle que le djin pose.
+
+#### Sorcellerie à contact physique
+
 + Sorcellerie aspergée (dans un lieu, contact physique)
+
++ Sorcellerie mangée/bue
+    * La sorcellerie mangée provoque dans 95% des cas des effets secondaires qui sont des difficultés dans le système digestif : estomac et intestins : brûlures, nausées, vomissements, noeud ou boule dans le ventre, gaz, piqûres.
+
 + Sorcellerie déposée (dans le corps)
-+ Sorcellerie accrochée
-+ Sorcellerie enterrée
-+ Sorcellerie vaudou (poupée, animaux)
-+ Sorcellerie par objets (photos, autres objets propres)
-+ Sorcellerie par élément organique (cheveux, peau, sueur, sang, ...)
+    * La sorcellerie déposée signifie que le sorcier envoie un djinn déposer la sorcellerie dans le corps de la personne.
+    * Le plus souvent, cela est mis dans les ovaires de la femme pour empêcher qu’elle ait des enfants. Cela peut aussi être mis dans le sexe de l’homme pour l’empêcher d’avoir des rapports. Elle est aussi mise dans toute partie du corps pour provoquer des douleurs et un dysfonctionnement.
+    * Enfin, il arrive qu’elle soit déposée dans le corps simplement parce que le sorcier a aussi envoyé des djinns dans la personne, et la sorcellerie déposée les empêchera de partir tant qu’elle est présente ; si le malade va se soigner et qu’on essaye de lui enlever les djinns alors qu’ils sont liés à une sorcellerie déposée dans le corps, et que la personne qui le soigne ne sait pas la lui enlever ou ne s’en rend pas compte, elle aura beau tout faire, les djinns ne partiront pas.
+    * donc, la sorcellerie peut être déposée dans le corps simplement pour compliquer le rétablissement de la personne si elle essaye de se soigner.
+    * On peut s’en douter quand on sent une douleur permanente ou récurrente dans un endroit bien spécifique.
+    * On l'enlève généralement avec un hijama pendant laquelle on fait une roqya d'annulation des sorcelleries ou de sortie du djin
+    * Pareil pour la sorcellerie piétinée, elle s'active quand on marche dessus, ventouse dans le bas du pied
+
+
 + Sorcellerie dans les objets (habits, bagues, bijoux, ...)
+
 + Sorcellerie par talismans ou pendentifs
     * Ecritures sur un papier, renfermées puis accrochées autour du cou ou portées
     * La majorité des savants, notamment l'avis Ibn Mas'oud est ses compagnons, est que c'est interdit même s'il n'y figure que des versets, mails y a divergence (s'il y a que des versets)
     * Le risque est qu'au milieu des versets se glisse du chirk (paroles ou crorie que la pendentif la protège) ou des formules magiques
     * Sont inclus dans les type de sorcellerie la numérologie, les carrés magiques ou les talismans avec noms d'Allah et valeurs etc, souvent correspondent à des noms de djins, et constituent une sorcellerie
     * Certains raqiy en donnent, et disent de toujours la porter, et de ne jamais l'ouvrir --> potentiellement charlatan et d'une sorcellerie
+
+#### Sorcelleries à distance
+
++ Sorcellerie accrochée
+
++ Sorcellerie enterrée
+
++ Sorcellerie vaudou (poupée, animaux)
+
++ Sorcellerie par objets (photos, autres objets propres)
+
++ Sorcellerie par élément organique (cheveux, peau, sueur, sang, ...)
+
 + Sorcellerie héritée
+    - Si la femme est touchée par une sorcellerie, ou si la sorcellerie est présente dans ses parties intimes, alors ça se passe au enfants, et un noeud se forme et l'enfant est alors touché. Et il a les mêmes symptomes, et parfois plus dur. SI la femme ne se soignait pas.
+    - Quand il est petit il y a quelques signes, mais ça se manifeste à partir de la puberté généralement
+    - La sorcellerie est toujorus présente chez la mère, mais les effets (en pire souvent), le djins etc passent à l'enfant
+    - Il  ya un lien entre la mère et l'enfant. Si la sorcellerie de la mère est annulé, l'enfant va mieux.
+    - C'est pourquoi les femmes doivent absolument se soigner, car ça peut se projeter vers les enfants
+    - Cela crée parfois des problèmes entre les enfants et la mère, sourtout quand on essaye de soigner.
+    - Cela peut revenir même si on soigne le fils, il faut soigner la mère surtout.
+    - Une étude à été menée en algérie sur les enfants autistes, sur 150 enfant, 115 mères étaient touchées par de la sorcellerie, et 5 étaient touchées de hassad. un Total de 120 mère touchées sur 150 --> 80%
+
 + Sorcellerie des étoiles et astres
+
 + Sorcellerie en chaine/périodique
+    * Il arrive aussi que le sorcier fasse plusieurs sorts en une fois, de façon à ce que chaque fois qu’un sera enlevé, le suivant entrera en action.
+    * On voit alors le malade se rétablir pendant quelques jours puis rechuter. Il se peut aussi que le sorcier fasse un suivi du malade : il est informé par des djinns chaque fois qu’il se soigne et lui refait de la sorcellerie.
+    * La différence avec le premier cas est que la sorcellerie est différente à chaque fois. Ce dernier cas est très rare et signifie que le sorcier en veut personnellement au malade.
+    * Au lieu de se soigner en boucle, il faut que le malade passer à l'attaque 
+        * il se protège avec les invocations. 
+        * s'il voit en rêve un djin ou sorcier, il lit immédiatement ayat al kousiy
+        * dou'as de l'opprimé
+        * traitement et lecture du coran avec intention de retour vers l'envoyeur
+        
+    * Nous avons pu constater que la personne qui se laisse subir les autres et qui n’est pas disposée à avoir une influence sur eux est plus fragile à la sorcellerie, aux djinns et au mauvais oeil. D’ailleurs elle est plus fragile à tout dans la vie. Alors fortifiez-vous, ne vous laissez pas faire, priez de toutes vos forces, levez-vous la nuit et suppliez Allah de se venger pour vous, de détruire les alliés du mal et de vous mettre à l’abri de leurs méfaits ainsi que vos proches et vos biens. Certains de nos patients ont ainsi vu leurs sorciers mourir en l’espace de quelques semaines. N’est-ce pas mieux ainsi ? Par ailleurs, plus vous réagissez fort contre ceux qui vous nuisent, plus cela dissuadera les suivants.
+    * Quand il y a une sorcellerie en série, il y a toujours un endroit où se trouve la sorcellerie mère. Alors, aussitôt qu’on s’en aperçoit, plutôt que de les enlever une par une, on attaque directement la source. Souvent, c’est déposé dans le corps, alors il faut chercher s’il y a un endroit du corps où il y a un point douloureux.
+
++ La sorcellerie partagée/multiple:
+    * Un sorcier peut attacher plusieurs personnes à une seule sorcellerie, (toute une famille, un couple, des associés par exemple),
+    * Toutes les sorcelleries précédentes peuvent être combinées sans aucune limite. Tant qu’on ne se soigne pas, on garde la sorcellerie à vie et on les accumule avec l’âge.
+    * Mais il arrive aussi que l’on veuille tellement de mal à quelqu’un qu’on lui en fasse plusieurs d’un coup ou qu’on lui en refasse régulièrement, si bien qu’il se retrouve rapidement avec un nombre très élevé de sorcellerie.
+    * Quand la personne commence à être submergée de sorcellerie, elle se met à perdre totalement le contrôle de sa personne et de sa vie.
 
 
 ### Les types de sorcellerie (buts et effets    )
