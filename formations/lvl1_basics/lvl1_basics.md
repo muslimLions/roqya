@@ -521,8 +521,18 @@ Ajouter ça dans les sorcelleries spécifiques, sinonnn référer au traitement
 
 ## Section 8 : Les pactes sataniques
 
-+ Définition 
++ Définition : Acte d'adoration, rituel, sacrifice ou offrande que le sorcier ou une personne lambda effectue pour un djin en échange d'un pouvoir, d'un travail continu etc.
+    * Souvent cela est lié à un sacrifice, où le sang coule, ou bien de la nourriture est donnée au djin.
+    * C'est un acte de chirk clair et net
+    * Ensuite un pacte occulte est alors créé, la personne qui a fait le rituel, la personne éventuellement visée par le pacte et le djin sont tous liés et attachés au pacte
+    * Les sorciers comment leur travail en faisant un certain nombre de pactes pour avoir des djins à leur service
++ Un djin peut faire ou être contraint de faire un pacte avec un autre djin plus fort, pour l'enfermer et s'assurer qu'il assurera sa part du contrat
 + Effets des pactes sur la descendance
+    * Une personne qui a fait un pacte avec le djin aura des conséquences graves pour sa personne, ne pourras pas se défiler ou l'annuler sans conséquence
+    * Ses enfants seront touchés, et toute la descendance, tant que le pacte, ou la liaison au pacte ne sera pas coupée
+    * Il y a des similitudes avec la sorcellerie héritée, mais c'est plus grave et plus large
+    
++ Elle peut bloquer la guérison, être la raison de la présence permanente d'un djin, il faut l'enlever en premier
 
 + Versets d'annulation
 
