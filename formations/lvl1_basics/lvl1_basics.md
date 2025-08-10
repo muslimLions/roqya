@@ -521,7 +521,18 @@ Ajouter ça dans les sorcelleries spécifiques, sinonnn référer au traitement
 
 ## Section 8 : Les pactes sataniques
 
++ Définition 
++ Effets des pactes sur la descendance
 
++ Versets d'annulation
+
+> Baraatoun minnalhi wa rassoulihi ... (Sourate At-tawba, v1)
+
+> Qoul inna salaati wa nouosouki ... (Sourate Al-an'am 6 v162/163)
+
+> Mathalou allathina ittakhathou min dounillahi awliayh kamathali al 'ankabout itakhathat bayta, wa inna awhanal bouyouti la baytoul ....(Sourate Al ankabout 29 v41)
+
+> Hourrimat 'alaykoum al maytatou, wad-damou , wa lahmal khinzir
 
 ## Section 9 : Le traitement
 
