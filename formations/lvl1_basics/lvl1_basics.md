@@ -257,7 +257,7 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
 + Passer à l'attaque
 
 
-## Section 3bis :  les symptomes généraux (commun aux trois)
+## Section 4 :  les symptomes généraux (commun aux trois)
 * ce qui se répète dans les rêves montre qu'il  ya quelque chose d'un mal occulte (chute de hauteur par exemple, les animaux, des montres qui l'attaquent etc)
 * la chute de cheveux, en grande quantité
 * douleur dans le cou, les épaules, omoplates, ...
@@ -272,7 +272,7 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
 
 
 
-## Section 4 : Le mauvais oeil
+## Section 5 : Le mauvais oeil
 + Qu'est-ce que le mauvais oeil ?
     * C’est un effet spirituel qui ne peut être expliqué pas les lois physiques.
     * Certaines personnes ont ce pouvoir du mauvais oeil ; dès qu’elle regarde une chose avec admiration, elle se détruit.
@@ -338,7 +338,7 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
 
 
 
-## Section 5 : La jalousie
+## Section 6 : La jalousie
 
 + Definition : C'est lorsqu'une personne voit ue ni'ma chez autrui, et qu'elle veuille que cette ni'ma s'envole et parte et se détruise, et qu'éventuellement elle vienne à lui à la place
 + Autre définition : c'est lorsqu'une personne déteste ce qu'Allah a fait descendre chez quelqu'un de bien et de ni'ma, qu'il veille sa destruction ou pas
@@ -370,7 +370,7 @@ on appelle roqya car celle élève celui qui la récite, et élève et enlève l
 
 > versets des 'ouqad (noeuds)
 
-## Section 6 : La sorcellerie
+## Section 7 : La sorcellerie
 + Définition : Accord entre un sorcier et un chaytan de faire un certain nombre d'actes interdits ou d'association en échage d'une aide ou d'une obéissance de sa part
 + autre Définition choisie de la sorcellerie : 
 ecritures (dessins, gravée, ...), et récitation (formules magiques, incantations, ...), et actions (fumée, noeuds, souffler, ...) et rituels (sacrifices, animaux spécifiques, souillure du coran, ...), pour se rapprocher des diables (sorcellerie c'est adoration des chayatins), pour réaliser une mauvaise action/effet bien précise et demandée
@@ -516,13 +516,54 @@ ecritures (dessins, gravée, ...), et récitation (formules magiques, incantatio
 
 ### Annulation des sorcelleries
 
+Ajouter ça dans les sorcelleries spécifiques, sinonnn référer au traitement
+
+
+## Section 8 : Les pactes sataniques
 
 
 
-## Section 7 : Les pactes sataniques
+## Section 9 : Le traitement
+
+Le traitement vient après avoir fait un diagnostic avec le raqiy, puis une première roqya avec lui pour faciliter le terrain
+
++ Préparation:
+    * Préparer l'eau coranique, avec les feuilles de Coran
+    * Acheter du Sana makki et Sidr
+    * Acheter vaporisateur
+    * Acheter bassine, piscine ou comment bloquer la baignoire
+    * Acheter de l'huile d'olive
+    * Acheter des (cônes) encens
+
++ Le traitement dure 12 jours et comprend XX actions en parallèle
+    1. La tisane de sana makki
+        * Pour traiter la sorcellerie mangée
+
+    2. Les douches avec l'eau coranique
+
+    3. L'huile coranique
+
+    4. Les encens coranisés
+        * Contre les noeuds qui peuvent se placer au niveau des parties intimes
+        * On récite sur l'encens 7 fois al fatiha, 7 fois ayat al koursi, 7 fois les sourates protectrices, et les versets d'annulation de la sorcellerie (générale, et celle des noeuds) 
+        * On allume un encens que l'on pose sur un support que l'on pose par terre
+        * On se déshabille et on met une genre de djellaba, et on vient se placer au dessus , en écartant les jambes pour que la fumée remonte en direction de l'entre-jambe
+        * On reste ainsi jusqu'à ce que l'encens est terminé
+        * On répète tous les jours du traitement
+
+    5. Vaporisation de l'eau coranique
+        * À la maison, dans tous les coins, murs, plafonds, entrées de porte, fenêtre, intérieur des meubles, intérieur frigo, etc partout où l'on peut
+        * Pour les toilettes et salle de bain, on utilise de l'eau non coranisée avec du sel et du sidr si on a
+        * On vaporise aussi la voiture, le lieu de travail extérieur, ...
+        * On applique le protocole de protection de maison
+
+    6. Boire de l'eau coranisée
+        * Au moins 0,5L par jour (à part la tisane de Séné)
+        * On peut aller plus loin en coranisant aussi notre nourriture etc
 
 
-## Section 8 : Le déroulement d'une roqya
+
+## Section 10 : Le déroulement d'une roqya
 
 ### Le raqiy
 + Personnes qui va diagnostiquer, conduire la roqya et prescrire le traitement
@@ -532,10 +573,33 @@ ecritures (dessins, gravée, ...), et récitation (formules magiques, incantatio
 
 ### Le diagnostic 
 
-## Sujet 9 : Le traitement
+
+### Etapes de la roqya
+
+Mettre ici la figure avec 
++ Liens extérieurs 
+    * Sorcellerie
+    * Sorciers
+    * Commanditaire
+    * Djins
+    * Pactes sataniques
+    * Parents/Maris/Frères et soeurs partageant des liens
++ Voiles : coeur, âme, nafs, nour, raison, corps,
++ Murs de protection : barricades, boomkers, maisons, ...
++ Entrée du nour dans le corps
++ Annulation du 'ayn
++ Annulation du hassad
++ Annulation des sorcelleries
++ Nettoyage et purifications des autres choses
++ Entrée du nour dans le corps encore
++ Attaque des djins
+
+Si durant la roqya le djin se manifeste, en fonction de comment ça se passe, soit on continue, soit on intéragit avec lui
++ Etablir la manière minimale de communiquer (bouger le doigt, la tête, ...)
++ 
 
 
-## Section 10 : Sujets divers
+## Section 11 : Sujets divers
 
 
 ## Section 11 : Allah est la clé de toute chose
